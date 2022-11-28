@@ -11,9 +11,9 @@
 
 - 👨‍💻 You can read more about me at [vasilakig.github.io](vasilakig.github.io)
 
-- 📫 How to reach me **vasilakigorgi@yahoo.com**
+- 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Fun fact **My interest list is endless**
+- ⚡ Fun fact: **My interest list is endless**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
