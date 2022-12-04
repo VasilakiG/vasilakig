@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Java and competitive programming**
 
-- 👨‍💻 You can read more about me at [vasilakig.github.io](vasilakig.github.io)
+- 👨‍💻 You can read more about me at [vasilakig.github.io](vasilakig.github.io)   https://vasilakig.github.io/
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
