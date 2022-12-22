@@ -4,7 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 I’m currently learning **Java and competitive programming**
+- 🌱 I’m currently learning **Java, .NET, Python, JavaScript and competitive programming**
 
 - 👨‍💻 You can read more about me at https://vasilakig.github.io/
 
