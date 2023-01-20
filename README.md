@@ -4,7 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 I’m currently learning **React and Next.js, Python, Java, .NET**
+- 🌱 I’m currently learning **Next.js and React, Python, Java, .NET**
 - ⚒️ Currently working on https://github.com/MarioStojcevski/eestec.mk
 
 - 👨‍💻 You can read more about me at https://vasilakig.github.io/
