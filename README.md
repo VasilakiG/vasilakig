@@ -5,9 +5,9 @@
 
 
 - 🌱 I’m currently learning **Next.js and Strapi, React, Next-SEO, Python, Java**
-- ⚒️ Currently working on https://github.com/MarioStojcevski/eestec.mk
+- ⚒️ Currently working on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
 
-- 👨‍💻 You can read more about me at https://vasilakig.github.io/
+- 👨‍💻 You can read more about me at https://vasilaki.mk/
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
