@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Fun fact: **My interest list is endless**
+- ⚡ Fun fact: **The oldest living tree is called "Methuselah" and is 4,765 years old. This tree is nearly 1,000 years older than any other bristlecone alive today. It lives in a secret location in the White Mountain range of eastern California.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
