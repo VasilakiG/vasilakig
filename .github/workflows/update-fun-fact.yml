@@ -2,7 +2,7 @@ name: Update Fun Fact
 
 on:
   schedule:
-    - cron: '*/1 * * * *'  # Run the job every minute
+    - cron: '0 0 * * *'  # Run the job every day at midnight (UTC)
 
 jobs:
   update-fun-fact:
