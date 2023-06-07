@@ -14,7 +14,11 @@ jobs:
 
       - name: Update Fun Fact
         run: |
-          FUN_FACT=$(curl -s https://api.api-ninjas.com/v1/facts?limit=1 | jq -r '.facts[0].fact')
+          API_KEY="${{ secrets.X_API_KEY }}"
+          FUN_FACT=$(curl -s -H "X-Api-Key: $API_KEY" "https://api.api-ninjas.com/v1/facts?limit=1" | jq -r '.facts[0].fact')
+          if [[ "$FUN_FACT" == "null" ]]; then
+            FUN_FACT="Failed to fetch fun fact."
+          fi
           sed -i "s|⚡ Fun fact:.*|⚡ Fun fact: **$FUN_FACT**|" README.md
           git config --local user.email "action@github.com"
           git config --local user.name "GitHub Action"
