@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Fun fact: **An acre of trees can remove about 13 tons of dust and gases every year from the surrounding environment**
+- ⚡ Fun fact: **There are more than 1,000 chemicals in a cup of coffee. Of these, only 26 have been tested, and half-caused cancer in rats**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
