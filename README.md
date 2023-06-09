@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Fun fact: **There are more than 1,000 chemicals in a cup of coffee. Of these, only 26 have been tested, and half-caused cancer in rats**
+- ⚡ Fun fact: **A starfish can turn its stomach inside out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
