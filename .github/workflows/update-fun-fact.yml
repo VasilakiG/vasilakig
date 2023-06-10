@@ -19,7 +19,7 @@ jobs:
           if [[ "$FUN_FACT" == "null" ]]; then
             FUN_FACT="Failed to fetch fun fact."
           fi
-          sed -i "s|⚡ Fun fact:.*|⚡ Fun fact: **$FUN_FACT**|" README.md
+          sed -i "s|⚡ Daily fun fact:.*|⚡ Daily fun fact: **$FUN_FACT**|" README.md
           git config --local user.email "action@github.com"
           git config --local user.name "GitHub Action"
           git commit -m "Update fun fact" -a
