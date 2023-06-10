@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Fun fact: **A starfish can turn its stomach inside out**
+- ⚡ Daily fun fact: **A starfish can turn its stomach inside out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
