@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A starfish can turn its stomach inside out**
+- ⚡ Daily fun fact: **It has been suggested that shepherds are responsible for inventing the game golf. It is said that they used to use their staffs to hit the stones**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
