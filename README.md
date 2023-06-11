@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It has been suggested that shepherds are responsible for inventing the game golf. It is said that they used to use their staffs to hit the stones**
+- ⚡ Daily fun fact: **In Japan, by the time man reaches the age of 60, he is commemorated with a special ceremony. This ceremony features the man wearing a red kimono, which denotes that he no longer has the responsibilities of being a mature adult**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
