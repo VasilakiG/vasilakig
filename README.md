@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The desert tortoise can live without having to drink any water. It extracts the water it needs from the vegetation it eats**
+- ⚡ Daily fun fact: **Oak trees can live 200 or more years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
