@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Oak trees can live 200 or more years**
+- ⚡ Daily fun fact: **Finland is also known as "the land of of the thousand lakes," because of the over 188,000 lakes found in this country**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
