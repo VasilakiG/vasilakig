@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In August 1999, Lori Lynn Lomeli set a record by spinning 82 Hula Hoops at the same time for three full revolutions**
+- ⚡ Daily fun fact: **Women who are romance novel readers are reported to make love 74% more often with their partners than women who do not read romance novels.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
