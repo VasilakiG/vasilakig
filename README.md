@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Women who are romance novel readers are reported to make love 74% more often with their partners than women who do not read romance novels.**
+- ⚡ Daily fun fact: **Billie Jean by Michael Jackson was the first video to air on MTV by a black artist**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
