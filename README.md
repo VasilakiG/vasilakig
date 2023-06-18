@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Billie Jean by Michael Jackson was the first video to air on MTV by a black artist**
+- ⚡ Daily fun fact: **The brain of an ant has about 250,000 brain cells**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
