@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The brain of an ant has about 250,000 brain cells**
+- ⚡ Daily fun fact: **Polar bears can eat as much as ten percent of their body weight in less than one hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
