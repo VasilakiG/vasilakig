@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Polar bears can eat as much as ten percent of their body weight in less than one hour**
+- ⚡ Daily fun fact: **Finland has 187,888 lakes and 179,584 islands**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
