@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Finland has 187,888 lakes and 179,584 islands**
+- ⚡ Daily fun fact: **In 1936, the first practical helicopter was invented. It was the German Focke-Wulf Fw 61.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
