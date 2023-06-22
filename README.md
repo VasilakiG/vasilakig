@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1936, the first practical helicopter was invented. It was the German Focke-Wulf Fw 61.**
+- ⚡ Daily fun fact: **More pollution is emitted from the average home compared to the average car.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
