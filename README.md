@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **More pollution is emitted from the average home compared to the average car.**
+- ⚡ Daily fun fact: **In L.A., U.S.A., a man may legally beat his wife with a leather strap, as long as it is less than 2 inches wide**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
