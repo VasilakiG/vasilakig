@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In L.A., U.S.A., a man may legally beat his wife with a leather strap, as long as it is less than 2 inches wide**
+- ⚡ Daily fun fact: **American women, on average, spend 55 minutes per day getting showered, dressed, and groomed**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
