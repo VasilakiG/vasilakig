@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Annually 7 million tons of textiles and clothing is thrown out. Out of this, only 12% is used again or recycled**
+- ⚡ Daily fun fact: **The first known American novelist to hand in a manuscript that was typed was Mark Twain. His typewriter was a Remington No.1, which was invented by Christopher Sholes and Carlos Glidden.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
