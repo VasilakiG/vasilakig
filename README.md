@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Eyebrow hair lasts between 3-5 months before it sheds**
+- ⚡ Daily fun fact: **The nut "filbert" got its name from St. Philbert which is celebrated on August 22nd, which is also when the nut matures**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
