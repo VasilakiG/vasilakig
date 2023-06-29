@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The nut "filbert" got its name from St. Philbert which is celebrated on August 22nd, which is also when the nut matures**
+- ⚡ Daily fun fact: **There are some species of snails that are venomous. Their venom can be fatal to humans**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
