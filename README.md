@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are some species of snails that are venomous. Their venom can be fatal to humans**
+- ⚡ Daily fun fact: **There are over 100 styles of BluBlocker sunglasses available on the market**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
