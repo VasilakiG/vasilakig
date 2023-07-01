@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are over 100 styles of BluBlocker sunglasses available on the market**
+- ⚡ Daily fun fact: **The sport Lacrosse was initially played by Native American Indians. They played the sport to prepare for war**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
