@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The sport Lacrosse was initially played by Native American Indians. They played the sport to prepare for war**
+- ⚡ Daily fun fact: **Every 238 years, the orbits of Neptune and Pluto change making Neptune at times the farthest planet from the sun**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
