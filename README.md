@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every 238 years, the orbits of Neptune and Pluto change making Neptune at times the farthest planet from the sun**
+- ⚡ Daily fun fact: **Joseph Gayetty is credited for inventing toilet paper in 1857. Unfortunately, his invention failed and did not catch on until ten years later**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
