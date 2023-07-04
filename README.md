@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Joseph Gayetty is credited for inventing toilet paper in 1857. Unfortunately, his invention failed and did not catch on until ten years later**
+- ⚡ Daily fun fact: **Approximately 25,000 workers died during the building of the Panama Canal and approximately 20,000 of them contracted malaria and yellow fever**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
