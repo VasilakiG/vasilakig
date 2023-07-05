@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 25,000 workers died during the building of the Panama Canal and approximately 20,000 of them contracted malaria and yellow fever**
+- ⚡ Daily fun fact: **Chopsticks originated from China approximately 4,000 years ago**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
