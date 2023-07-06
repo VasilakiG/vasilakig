@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Chopsticks originated from China approximately 4,000 years ago**
+- ⚡ Daily fun fact: **The banana was officially introduced in 1876 in the U.S. at the Philadelphia Centennial Exhibition. The bananas were wrapped in tinfoil and were sold for 10 cents each**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
