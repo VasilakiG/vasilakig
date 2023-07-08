@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Food can only be tasted if it is mixed with saliva**
+- ⚡ Daily fun fact: **The biggest bug in the world is the Goliath Beetle which can weigh up to 3.5 ounces and be 4.5 inches long**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
