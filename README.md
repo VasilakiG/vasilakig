@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On April 6, 1925, the first in-flight movie was shown. It was a silent film and appeared on a Deutsche Luft Hansa flight**
+- ⚡ Daily fun fact: **Every year, kids in North America spend close to half a billion dollars on chewing gum**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
