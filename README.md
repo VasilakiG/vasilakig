@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The most dangerous job in the United States is that of a fisherman, followed by logging and then an airline pilot**
+- ⚡ Daily fun fact: **Smelling bananas can help a person lose weight**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
