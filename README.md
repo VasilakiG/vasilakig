@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Smelling bananas can help a person lose weight**
+- ⚡ Daily fun fact: **No NFL team which plays its home games in a domed stadium has ever won a Superbowl**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
