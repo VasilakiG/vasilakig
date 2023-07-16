@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **No NFL team which plays its home games in a domed stadium has ever won a Superbowl**
+- ⚡ Daily fun fact: **France, Switzerland, United Kingdom, Greece, and Australia have always been in the modern Olympics since it began in 1896**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
