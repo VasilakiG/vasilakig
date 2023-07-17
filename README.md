@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **France, Switzerland, United Kingdom, Greece, and Australia have always been in the modern Olympics since it began in 1896**
+- ⚡ Daily fun fact: **Historically, a blue ribbon has been awarded for first prize**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
