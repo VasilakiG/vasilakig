@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Ian Fleming named his character "James Bond" after real-life ornithologist and author**
+- ⚡ Daily fun fact: **People of Ancient China believed that swinging your arms could cure a headache**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
