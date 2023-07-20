@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **People of Ancient China believed that swinging your arms could cure a headache**
+- ⚡ Daily fun fact: **Painting a house yellow or having a yellow trim helps in selling a house faster**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
