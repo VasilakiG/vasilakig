@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Painting a house yellow or having a yellow trim helps in selling a house faster**
+- ⚡ Daily fun fact: **There are over 2,000 different types of cheese in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
