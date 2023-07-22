@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are over 2,000 different types of cheese in the world**
+- ⚡ Daily fun fact: **Eating 11 pounds of apples will make you gain one pound of weight**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
