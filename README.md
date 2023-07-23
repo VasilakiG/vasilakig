@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Eating 11 pounds of apples will make you gain one pound of weight**
+- ⚡ Daily fun fact: **Milton Bradley originally wanted to name the game Twister, Pretzel; but he could not since the name was copyrighted**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
