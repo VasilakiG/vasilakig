@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Milton Bradley originally wanted to name the game Twister, Pretzel; but he could not since the name was copyrighted**
+- ⚡ Daily fun fact: **A chicken once had its head cut off and survived for over eighteen months, headless**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
