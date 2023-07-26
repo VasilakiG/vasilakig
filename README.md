@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first human heart transplant happened on December 3, 1967. Unfortunately the patient only lived for eighteen days, succumbing in the end to pneumonia**
+- ⚡ Daily fun fact: **The United States produces enough plastic film annually to cover the entire state of Texas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
