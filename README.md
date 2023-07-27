@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The United States produces enough plastic film annually to cover the entire state of Texas**
+- ⚡ Daily fun fact: **There are 122 pebbles per square inch on a Spalding basketball**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
