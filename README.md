@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are 122 pebbles per square inch on a Spalding basketball**
+- ⚡ Daily fun fact: **Each year all of the Hostess bakeries combined bake 500 million Twinkies a year. (A twinkie is a sponge cake with a creamy filling.)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
