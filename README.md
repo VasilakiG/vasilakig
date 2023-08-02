@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A shark is the only fish that can blink with both eyes**
+- ⚡ Daily fun fact: **In every episode of Seinfeld there is a Superman somewhere**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
