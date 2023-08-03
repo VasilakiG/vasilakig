@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In every episode of Seinfeld there is a Superman somewhere**
+- ⚡ Daily fun fact: **The average person can live about a month without eating any food, but can only live about a week without water**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
