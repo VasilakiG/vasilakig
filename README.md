@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **"I am." is the second shortest complete sentence in the English language**
+- ⚡ Daily fun fact: **New Mexico is known as the "Land of Enchantment."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
