@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **New Mexico is known as the "Land of Enchantment."**
+- ⚡ Daily fun fact: **A squash ball moving at 150 kilometers per hour has the same impact of a .22 bullet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
