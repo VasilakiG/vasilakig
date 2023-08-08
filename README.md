@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pikeville, Kentucky consumes the most Pepsi per capita then any other American city**
+- ⚡ Daily fun fact: **A group of whales is called a pod or gam**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
