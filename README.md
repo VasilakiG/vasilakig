@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A crocodile can run up to a speed of 11 miles per hour**
+- ⚡ Daily fun fact: **In the 18th century, potatoes were given out as a dessert. They were served in a napkin, salted and hot**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
