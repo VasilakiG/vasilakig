@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the 18th century, potatoes were given out as a dessert. They were served in a napkin, salted and hot**
+- ⚡ Daily fun fact: **Close to 50% of the water used in a home originates from the bathroom**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
