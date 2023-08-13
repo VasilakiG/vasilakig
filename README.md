@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In humans, the epidermal layer of skin, which consists of many layers of skin regenerates every 27 days**
+- ⚡ Daily fun fact: **While digging, an Armadillo can hold its breath for up to six minutes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
