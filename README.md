@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **While digging, an Armadillo can hold its breath for up to six minutes**
+- ⚡ Daily fun fact: **The first telephone call from the White House was from Rutherford Hayes to Alexander Graham Bell**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
