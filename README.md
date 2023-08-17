@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the United States there are about three million honey producing colonies**
+- ⚡ Daily fun fact: **Morihei Ueshiba, founder of Aikido, once pinned an opponent using only a single finger**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
