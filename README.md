@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Morihei Ueshiba, founder of Aikido, once pinned an opponent using only a single finger**
+- ⚡ Daily fun fact: **75-90% of primary physician visits are due to stress**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
