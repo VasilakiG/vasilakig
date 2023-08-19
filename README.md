@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **75-90% of primary physician visits are due to stress**
+- ⚡ Daily fun fact: **There are more than 2,000 different varieties of cheese in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
