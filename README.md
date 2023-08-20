@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are more than 2,000 different varieties of cheese in the world**
+- ⚡ Daily fun fact: **Everyday, more money is printed for Monopoly than the U.S. Treasury**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
