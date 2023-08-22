@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On a bottle of brandy VSOP stand for "Very Special Old Pale."**
+- ⚡ Daily fun fact: **Clans of long ago that wanted to get rid of their unwanted peoplewithout killing them used to burn their houses down - hence theexpression "toget fired."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
