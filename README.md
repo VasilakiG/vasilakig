@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Clans of long ago that wanted to get rid of their unwanted peoplewithout killing them used to burn their houses down - hence theexpression "toget fired."**
+- ⚡ Daily fun fact: **The word "lethologica" describes the state of not being able to remember the word you want**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
