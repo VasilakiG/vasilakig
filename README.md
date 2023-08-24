@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word "lethologica" describes the state of not being able to remember the word you want**
+- ⚡ Daily fun fact: **The word "Nazi" is actually an abbreviation for Nationalsozialistische Deutsche Arbeiterpartei, which refers to the National Socialist German Workers Party**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
