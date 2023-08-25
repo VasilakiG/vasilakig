@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word "Nazi" is actually an abbreviation for Nationalsozialistische Deutsche Arbeiterpartei, which refers to the National Socialist German Workers Party**
+- ⚡ Daily fun fact: **Bernd Eilts, a German artist, turns dried cow manure into wall clocks and small sculptures. He is now expanding his business to include cow dung wrist watches**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
