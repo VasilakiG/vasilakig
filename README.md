@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Bernd Eilts, a German artist, turns dried cow manure into wall clocks and small sculptures. He is now expanding his business to include cow dung wrist watches**
+- ⚡ Daily fun fact: **Chocolate was used as medicine during the 18th century. It was believed that chocolate could cure a stomach ache**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
