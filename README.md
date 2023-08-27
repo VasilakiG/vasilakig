@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Chocolate was used as medicine during the 18th century. It was believed that chocolate could cure a stomach ache**
+- ⚡ Daily fun fact: **In 1992, the Antarctic Ozone hole was larger than the continent of North America.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
