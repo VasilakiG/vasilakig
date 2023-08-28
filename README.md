@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1992, the Antarctic Ozone hole was larger than the continent of North America.**
+- ⚡ Daily fun fact: **Snake venom is ninety percent protein**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
