@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Snake venom is ninety percent protein**
+- ⚡ Daily fun fact: **Even though the rose does not bear any fruit, the rose hips have more Vitamin C than most vegetables and fruits**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
