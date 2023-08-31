@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Billie Jean by Michael Jackson was the first video to air on MTV by a black artist**
+- ⚡ Daily fun fact: **The favorite honeymoon place is Hawaii**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
