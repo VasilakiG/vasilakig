@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The favorite honeymoon place is Hawaii**
+- ⚡ Daily fun fact: **Musk is extracted from the bottom of a civet, and is used as an ingredient to make perfumes.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
