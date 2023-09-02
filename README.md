@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Musk is extracted from the bottom of a civet, and is used as an ingredient to make perfumes.**
+- ⚡ Daily fun fact: **India used to be the richest country in the world until the British invasion in the early 17th Century**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
