@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **India used to be the richest country in the world until the British invasion in the early 17th Century**
+- ⚡ Daily fun fact: **The act of sneezing is referred to as sternutation**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
