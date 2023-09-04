@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The act of sneezing is referred to as sternutation**
+- ⚡ Daily fun fact: **In Italy, Santa Claus is known by the name Babbo Natale**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
