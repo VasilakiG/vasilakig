@@ -5,7 +5,9 @@
 
 
 - 🌱 Learning **Next.js and React, Next-SEO, Rust, Python, Java**
-- ⚒️ Working on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
+  
+- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/
+- ⚒️ Working on https://galacticomnivore.com/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
