@@ -11,7 +11,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Italy, Santa Claus is known by the name Babbo Natale**
+- ⚡ Daily fun fact: **On a Canadian two dollar bill, the flag flying over the Parliament building is an American flag**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
