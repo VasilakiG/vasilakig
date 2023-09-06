@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On a Canadian two dollar bill, the flag flying over the Parliament building is an American flag**
+- ⚡ Daily fun fact: **The makers of Crayola produce over 2 billion crayons in a year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
