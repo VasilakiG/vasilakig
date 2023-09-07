@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The makers of Crayola produce over 2 billion crayons in a year**
+- ⚡ Daily fun fact: **Kissing can aid in reducing tooth decay. This is because the extra saliva helps in keeping the mouth clean**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
