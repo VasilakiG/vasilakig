@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Kissing can aid in reducing tooth decay. This is because the extra saliva helps in keeping the mouth clean**
+- ⚡ Daily fun fact: **The first Labor Day holiday was celebrated on Tuesday, September 5, 1882, in New York City**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
