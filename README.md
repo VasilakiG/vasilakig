@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first Labor Day holiday was celebrated on Tuesday, September 5, 1882, in New York City**
+- ⚡ Daily fun fact: **The loudest insect in the world is the male cicadas, which are like crickets. When they rub their abdomens, the sound made can be heard from 1300 feet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
