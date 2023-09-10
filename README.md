@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The loudest insect in the world is the male cicadas, which are like crickets. When they rub their abdomens, the sound made can be heard from 1300 feet**
+- ⚡ Daily fun fact: **In 1845, inventor Thomas Adams started the world's first chewing gum factory.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
