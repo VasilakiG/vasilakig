@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1845, inventor Thomas Adams started the world's first chewing gum factory.**
+- ⚡ Daily fun fact: **The abbreviation Xmas for the word Christmas is of Greek origin. Since the word for Christ in the Greek language is Xristos, which starts with the letter "X," they started putting the X in place of Christ and came up with the short form for the word Christmas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
