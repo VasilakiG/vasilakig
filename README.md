@@ -29,7 +29,7 @@
 
 <p><img align="left" src="https://github-readme-stats-sigma-five.vercel.app/api/top-langs?username=vasilakig&show_icons=true&locale=en&layout=compact&include_all_commits=true" alt="vasilakig" /></p>
 
-<p>&nbsp;<img align="center" src="https://github-readme-stats-sigma-five.vercel.app/api?username=vasilakig&show_icons=true&locale=en&include_all_commits=true&theme=tokyonight" alt="vasilakig" /></p>
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=vasilakig&show_icons=true&locale=en&include_all_commits=true&theme=tokyonight" alt="vasilakig" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=vasilakig&" alt="vasilakig" /></p>
 
