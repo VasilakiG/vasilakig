@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The giant squid has the largest eyes in the world**
+- ⚡ Daily fun fact: **A drink used to be made by the Aztecs for the gods which had the ingredients of ground cocoa mixed in with spices and corn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
