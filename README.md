@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A drink used to be made by the Aztecs for the gods which had the ingredients of ground cocoa mixed in with spices and corn**
+- ⚡ Daily fun fact: **The word Himalayas means the "home of snow."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
