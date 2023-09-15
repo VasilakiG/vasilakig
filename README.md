@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word Himalayas means the "home of snow."**
+- ⚡ Daily fun fact: **There have been 191 coops in Bolivia since it became a sovereign country in 1825**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
