@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before its name was changed, the African Penguin used be called the Jackass Penguin because of its donkey-like braying call**
+- ⚡ Daily fun fact: **In the Pacific Islands when people get burns they often use a banana leaf as treatment**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
