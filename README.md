@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **80% of people that are on weight loss programs exercise on average three times a week**
+- ⚡ Daily fun fact: **Polar bears are left-handed**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
