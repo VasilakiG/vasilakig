@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Polar bears are left-handed**
+- ⚡ Daily fun fact: **The oldest documented footwear found was a 8,000 year-old sandal found in a cave located in Missouri, USA**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
