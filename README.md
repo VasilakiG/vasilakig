@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Levan, which is located in Utah, got its name from "navel" which is levan spelt backwards. It was named this because it is in the center of Utah**
+- ⚡ Daily fun fact: **The oldest documented footwear found was a 8,000 year-old sandal found in a cave located in Missouri, USA**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
