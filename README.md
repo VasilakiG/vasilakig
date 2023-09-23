@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The oldest documented footwear found was a 8,000 year-old sandal found in a cave located in Missouri, USA**
+- ⚡ Daily fun fact: **The first president to have a picture taken was John Quincy Adams**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
