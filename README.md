@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first president to have a picture taken was John Quincy Adams**
+- ⚡ Daily fun fact: **570 gallons of paint would be needed to paint the outside of the White House**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
