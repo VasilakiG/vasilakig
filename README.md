@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **570 gallons of paint would be needed to paint the outside of the White House**
+- ⚡ Daily fun fact: **In New York City, approximately 1,600 people are bitten by other humans annually**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
