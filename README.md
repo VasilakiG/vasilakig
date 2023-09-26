@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In New York City, approximately 1,600 people are bitten by other humans annually**
+- ⚡ Daily fun fact: **Cricket chirping can tell the temperature outside. Counting how many times a cricket chirps in 15 seconds and then adding 40 to that number will approximately tell you what the temperature is in Fahrenheit**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
