@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cricket chirping can tell the temperature outside. Counting how many times a cricket chirps in 15 seconds and then adding 40 to that number will approximately tell you what the temperature is in Fahrenheit**
+- ⚡ Daily fun fact: **No other animal gives us more by-products than the hog. These by-products include pig suede, buttons, glass, paint brushes, crayons, chalk, and insulation to name a few**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
