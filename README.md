@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **No other animal gives us more by-products than the hog. These by-products include pig suede, buttons, glass, paint brushes, crayons, chalk, and insulation to name a few**
+- ⚡ Daily fun fact: **Kermit the frog delivered the commencement address at Southampton College located in the state of New York in 1996**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
