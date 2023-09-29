@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Kermit the frog delivered the commencement address at Southampton College located in the state of New York in 1996**
+- ⚡ Daily fun fact: **Budweiser beer is named after a town in Czechoslovakia**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
