@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The "naked recreation and travel" industry has grown by 233% in the past decade**
+- ⚡ Daily fun fact: **No piece of paper can be folded in half more than 7 times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
