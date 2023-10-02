@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **No piece of paper can be folded in half more than 7 times**
+- ⚡ Daily fun fact: **The only predator that polar bears have are humans**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
