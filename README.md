@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Hawaiian alphabet has 12 letters**
+- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
