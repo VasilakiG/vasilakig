@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
+- ⚡ Daily fun fact: **John Van Wormer invented paper milk cartons after dropping a bottle of milk one morning. The bottle broke spilling the milk everywhere. That annoyance was enough for Van Wormer to come up with the idea.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
