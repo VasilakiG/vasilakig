@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **John Van Wormer invented paper milk cartons after dropping a bottle of milk one morning. The bottle broke spilling the milk everywhere. That annoyance was enough for Van Wormer to come up with the idea.**
+- ⚡ Daily fun fact: **Goat meat contains up to 45 percent less saturated fat than chicken meat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
