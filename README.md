@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Goat meat contains up to 45 percent less saturated fat than chicken meat**
+- ⚡ Daily fun fact: **A penguin swims at a speed of approximately 15 miles per hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
