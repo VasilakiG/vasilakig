@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A penguin swims at a speed of approximately 15 miles per hour**
+- ⚡ Daily fun fact: **Approximately 75% of human poop is made of water**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
