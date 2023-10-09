@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 75% of human poop is made of water**
+- ⚡ Daily fun fact: **It is possible to lead a cow upstairs...but not downstairs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
