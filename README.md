@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It is possible to lead a cow upstairs...but not downstairs**
+- ⚡ Daily fun fact: **One out of every five births in the United States are delivered by Cesarean section**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
