@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One out of every five births in the United States are delivered by Cesarean section**
+- ⚡ Daily fun fact: **The first translation of the Bible into English was in 1382 A.D., by John Wycliff**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
