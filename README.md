@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The reason why locusts swarm are because when they are in groups, a "hot-spot" behind their hind legs is stimulated, which in turn causes their destructive nature. A large swarm of locusts can eat eighty thousand tons of corn in a day**
+- ⚡ Daily fun fact: **The Lemon shark grows about 24,000 new teeth a year. A new set of teeth grow approximately every 14 days**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
