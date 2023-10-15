@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Lemon shark grows about 24,000 new teeth a year. A new set of teeth grow approximately every 14 days**
+- ⚡ Daily fun fact: **Elvis had a twin brother named Jesse Garon, who died at birth**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
