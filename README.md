@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Elvis had a twin brother named Jesse Garon, who died at birth**
+- ⚡ Daily fun fact: **Only female mosquitoes bite humans. Male mosquitoes live on natural liquids from plants and other resources**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
