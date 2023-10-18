@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average human scalp has 100,000 hairs**
+- ⚡ Daily fun fact: **A scorpion can have up to 12 eyes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
