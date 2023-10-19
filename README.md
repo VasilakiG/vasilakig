@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A scorpion can have up to 12 eyes**
+- ⚡ Daily fun fact: **Seven asteroids were especially named for the Challenger astronauts who were killed in the 1986 failed launch of the space shuttle**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
