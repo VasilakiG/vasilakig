@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Seven asteroids were especially named for the Challenger astronauts who were killed in the 1986 failed launch of the space shuttle**
+- ⚡ Daily fun fact: **The name of the character that is behind bars in the Monopoly board game is Jake the Jailbird**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
