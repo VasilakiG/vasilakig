@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The name of the character that is behind bars in the Monopoly board game is Jake the Jailbird**
+- ⚡ Daily fun fact: **Tripolini pasta was named for the Italian conquest of Tripoli in Libya**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
