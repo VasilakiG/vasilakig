@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Tripolini pasta was named for the Italian conquest of Tripoli in Libya**
+- ⚡ Daily fun fact: **A house cat spends 70% of its time sleeping**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
