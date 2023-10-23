@@ -4,7 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **C++, Embedded Systems and μC, Python**
+- 🌱 Learning **C++, Embedded Systems and μC, Python and PyGame**
   
 - ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
 - ⚒️ Working on https://galacticomnivore.com/
