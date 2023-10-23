@@ -4,10 +4,10 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **Next.js and React, Next-SEO, Rust, Python, Java**
+- 🌱 Learning **C++, Embedded Systems and μC, Python**
   
-- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/
-- ⚒️ Working on https://galacticomnivore.com/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
+- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
+- ⚒️ Working on https://galacticomnivore.com/
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
