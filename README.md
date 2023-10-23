@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A house cat spends 70% of its time sleeping**
+- ⚡ Daily fun fact: **In the Middle Ages, peacocks and swans were sometimes served at Christmas dinners**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
