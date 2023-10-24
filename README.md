@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the Middle Ages, peacocks and swans were sometimes served at Christmas dinners**
+- ⚡ Daily fun fact: **A snake charmer in Bangladesh once found 3,500 poisonous cobras and their eggs hidden underneath the floors of two suburban homes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
