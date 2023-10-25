@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A snake charmer in Bangladesh once found 3,500 poisonous cobras and their eggs hidden underneath the floors of two suburban homes**
+- ⚡ Daily fun fact: **Dolphins can swim and sleep at the same time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
