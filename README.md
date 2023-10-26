@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Dolphins can swim and sleep at the same time**
+- ⚡ Daily fun fact: **Eating eight strawberries will provide you with more Vitamin C than an orange**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
