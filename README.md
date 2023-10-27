@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Eating eight strawberries will provide you with more Vitamin C than an orange**
+- ⚡ Daily fun fact: **The study of the iris of the eye is called iridology**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
