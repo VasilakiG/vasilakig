@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The study of the iris of the eye is called iridology**
+- ⚡ Daily fun fact: **There is a substance in the skin of the African clawed frog that helps in fighting infection**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
