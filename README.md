@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There is a substance in the skin of the African clawed frog that helps in fighting infection**
+- ⚡ Daily fun fact: **There are three golf balls sitting on the moon**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
