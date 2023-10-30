@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are three golf balls sitting on the moon**
+- ⚡ Daily fun fact: **Jupiter is the fastest rotating planet, which can complete one revolution in less than ten hours**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
