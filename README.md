@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Jupiter is the fastest rotating planet, which can complete one revolution in less than ten hours**
+- ⚡ Daily fun fact: **Chameleons can move their eyes independently. One eye can be looking forward and one eye backward at the same time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
