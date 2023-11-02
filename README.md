@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Heavier lemons produce more, and tastier, juice**
+- ⚡ Daily fun fact: **There are no two zebras who have stripes that are exactly the same**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
