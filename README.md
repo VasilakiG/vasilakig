@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are no two zebras who have stripes that are exactly the same**
+- ⚡ Daily fun fact: **On average, you would need 12.5 gallons of milk to make one gallon of ice cream**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
