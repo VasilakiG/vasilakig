@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A mole can dig a tunnel three hundred feet long in a single night**
+- ⚡ Daily fun fact: **The Hollywood sign was first erected in 1923. It was first erected as "Hollywoodland."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
