@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Hollywood sign was first erected in 1923. It was first erected as "Hollywoodland."**
+- ⚡ Daily fun fact: **Of all the countries, Brazil has the most plant species, with over 56,000**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
