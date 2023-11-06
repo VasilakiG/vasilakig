@@ -7,7 +7,7 @@
 - 🌱 Learning **C++, Embedded Systems and μC, Python and PyGame**
   
 - ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
-- ⚒️ Working on https://galacticomnivore.com/
+- ⚒️ Working on https://galacticomnivore.com/, https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
