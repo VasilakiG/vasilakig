@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Of all the countries, Brazil has the most plant species, with over 56,000**
+- ⚡ Daily fun fact: **One acre of wheat can produce enough bread to feed a family of four people for about ten years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
