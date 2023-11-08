@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One acre of wheat can produce enough bread to feed a family of four people for about ten years**
+- ⚡ Daily fun fact: **Studies indicate that weightlifters working out in blue gyms can handle heavier weights**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
