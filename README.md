@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **An average driver spends approximately 2 hours and 14 minutes kissing in their car in a lifetime**
+- ⚡ Daily fun fact: **Thomas Edison was afraid of the dark. (Hence, the light bulb?)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
