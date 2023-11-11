@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Thomas Edison was afraid of the dark. (Hence, the light bulb?)**
+- ⚡ Daily fun fact: **A study indicates that smokers are likely to die on average six and a half years earlier than non-smokers**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
