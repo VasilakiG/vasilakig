@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A study indicates that smokers are likely to die on average six and a half years earlier than non-smokers**
+- ⚡ Daily fun fact: **Early sewing machines were destroyed by mobs or workers who felt their jobs were threatened by automation**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
