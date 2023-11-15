@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 60% of the water used by households during the summer is used for watering flowers, and lawns**
+- ⚡ Daily fun fact: **At one time, Pumpkins were recommended for the removal of freckles and curing snake bites**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
