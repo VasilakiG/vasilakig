@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **At one time, Pumpkins were recommended for the removal of freckles and curing snake bites**
+- ⚡ Daily fun fact: **Fido means faithful in Latin**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
