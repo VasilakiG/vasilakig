@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Fido means faithful in Latin**
+- ⚡ Daily fun fact: **Most dinosaurs walked on their toes.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
