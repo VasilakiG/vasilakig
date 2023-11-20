@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In ancient Egypt, Priests plucked EVERY hair from their bodies including their eyebrows and eyelashes**
+- ⚡ Daily fun fact: **The Canandian province of New Brunswick had a bloodless war with the US state of Maine in 1839.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
