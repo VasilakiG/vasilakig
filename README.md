@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Canandian province of New Brunswick had a bloodless war with the US state of Maine in 1839.**
+- ⚡ Daily fun fact: **The average human has about 20 square feet of skin weighing about 6 pounds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
