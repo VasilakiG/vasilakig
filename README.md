@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average human has about 20 square feet of skin weighing about 6 pounds**
+- ⚡ Daily fun fact: **In the past 60 years, the groundhog has only predicted the weather correctly 28% of the time. The rushing back and forth from burrows is believed to indicate sexual activity, not shadow seeking**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
