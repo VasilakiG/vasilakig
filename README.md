@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the past 60 years, the groundhog has only predicted the weather correctly 28% of the time. The rushing back and forth from burrows is believed to indicate sexual activity, not shadow seeking**
+- ⚡ Daily fun fact: **When a women is pregnant, her senses are all heightened**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
