@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **When a women is pregnant, her senses are all heightened**
+- ⚡ Daily fun fact: **In 1999, a three headed turtle was discovered by Lin Chi-Fa in his pond in Southern Taiwan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
