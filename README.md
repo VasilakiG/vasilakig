@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
+- ⚡ Daily fun fact: **Gloucestershire airport in England used to blast Tina Turner songs on its runways to scare birds away**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
