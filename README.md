@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Gloucestershire airport in England used to blast Tina Turner songs on its runways to scare birds away**
+- ⚡ Daily fun fact: **Fear of clowns is called coulrophobia**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
