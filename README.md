@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On average it takes a shark seven days to replace a tooth**
+- ⚡ Daily fun fact: **On average, an American makes three pounds of garbage in a day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
