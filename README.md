@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1985, a pregnant women was falsely accused of shoplifting a basketball**
+- ⚡ Daily fun fact: **It takes eight and a half minutes for light to get from the sun to earth.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
