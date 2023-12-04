@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It takes eight and a half minutes for light to get from the sun to earth.**
+- ⚡ Daily fun fact: **The longest recorded duration of a total solar eclipse was 7.5 minutes.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
