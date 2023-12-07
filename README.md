@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **During World War II, Kit Kat was unavailable due to milk shortages, so the chocolate bar was made without milk**
+- ⚡ Daily fun fact: **The Saguaro Cactus, found in South-western United States does not grow branches until it is 75 years old.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
