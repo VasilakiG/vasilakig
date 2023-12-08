@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Saguaro Cactus, found in South-western United States does not grow branches until it is 75 years old.**
+- ⚡ Daily fun fact: **According to Scientists, vampire bat saliva is the best known medicine for keeping blood from clotting.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
