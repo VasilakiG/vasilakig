@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **According to Scientists, vampire bat saliva is the best known medicine for keeping blood from clotting.**
+- ⚡ Daily fun fact: **A U.S. company came out with a toilet night-light that sends out a green warning beacon when the seat is up**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
