@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A U.S. company came out with a toilet night-light that sends out a green warning beacon when the seat is up**
+- ⚡ Daily fun fact: **The Hubble telescope is so powerful that it is like pointing a beam of light at a dime that is two hundred miles away.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
