@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Hubble telescope is so powerful that it is like pointing a beam of light at a dime that is two hundred miles away.**
+- ⚡ Daily fun fact: **The Kraft company produces enough Cool Whip, a brand of whipping cream, in one year to fill the entire Grand Canyon**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
