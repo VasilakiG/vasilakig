@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Kraft company produces enough Cool Whip, a brand of whipping cream, in one year to fill the entire Grand Canyon**
+- ⚡ Daily fun fact: **Americans eat approximately 20 pounds of pasta per person each year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
