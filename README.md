@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Americans eat approximately 20 pounds of pasta per person each year**
+- ⚡ Daily fun fact: **The first product that the toy company Mattel came out with was picture frames**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
