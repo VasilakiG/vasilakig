@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The biggest pumpkin the world weighs 1,337.6 pounds**
+- ⚡ Daily fun fact: **Chef Boyardee is actually a real person. His real name is Hector Boiardi and he was born in northern Italy in 1898**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
