@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Chef Boyardee is actually a real person. His real name is Hector Boiardi and he was born in northern Italy in 1898**
+- ⚡ Daily fun fact: **On average, a person will spend about five years eating during their lifetime**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
