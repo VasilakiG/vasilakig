@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On average, a person will spend about five years eating during their lifetime**
+- ⚡ Daily fun fact: **Ukrainian people celebrate Christmas on January 7th, which is the Orthodox Christmas Day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
