@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Ukrainian people celebrate Christmas on January 7th, which is the Orthodox Christmas Day**
+- ⚡ Daily fun fact: **The word "walkman" was included in the Oxford English Dictionary in 1986**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
