@@ -4,10 +4,10 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **CMake, C++, Embedded Systems and μC, Python and PyGame**
+- 🌱 Learning **CMake, C++, Embedded Systems and μC**
   
 - ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
-- ⚒️ Working on https://galacticomnivore.com/, https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
+- ⚒️ Working on https://github.com/42dotmk/robot4e, https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
