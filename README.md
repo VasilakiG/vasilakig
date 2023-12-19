@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word "walkman" was included in the Oxford English Dictionary in 1986**
+- ⚡ Daily fun fact: **Each king in a deck of playing cards represents a great king from history. Spades - King David, Clubs - Alexander the Great, Hearts - Charlemagne, Diamonds - Julius Caesar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
