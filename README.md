@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Each king in a deck of playing cards represents a great king from history. Spades - King David, Clubs - Alexander the Great, Hearts - Charlemagne, Diamonds - Julius Caesar**
+- ⚡ Daily fun fact: **In the movie "Babe", the piglet was played by over 30 different piglets they outgrew the part so quickly during the production of the film**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
