@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the movie "Babe", the piglet was played by over 30 different piglets they outgrew the part so quickly during the production of the film**
+- ⚡ Daily fun fact: **There is a type of coffin made that can be used as a wine rack or picnic table before its final use**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
