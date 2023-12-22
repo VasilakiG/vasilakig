@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There is a type of coffin made that can be used as a wine rack or picnic table before its final use**
+- ⚡ Daily fun fact: **In Britain, one out of every four potatoes is eaten in the form of french fries**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
