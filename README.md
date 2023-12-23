@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Britain, one out of every four potatoes is eaten in the form of french fries**
+- ⚡ Daily fun fact: **People have the tendency to chew the food on the side that they most often use their hand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
