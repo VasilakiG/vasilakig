@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **People have the tendency to chew the food on the side that they most often use their hand**
+- ⚡ Daily fun fact: **On average, 42,000 balls are used and 650 matches are played at the annual Wimbledon tennis tournament**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
