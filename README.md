@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On average, 42,000 balls are used and 650 matches are played at the annual Wimbledon tennis tournament**
+- ⚡ Daily fun fact: **The destruction of the Berlin Wall began when private citizens began to demolish entire sections of the Wall without interference from government officials on November 9, 1989**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
