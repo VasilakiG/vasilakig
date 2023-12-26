@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The destruction of the Berlin Wall began when private citizens began to demolish entire sections of the Wall without interference from government officials on November 9, 1989**
+- ⚡ Daily fun fact: **People who meet their calcium need reduce their risk of developing kidney stones**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
