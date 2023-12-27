@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **People who meet their calcium need reduce their risk of developing kidney stones**
+- ⚡ Daily fun fact: **Coca-Cola was the first soft drink to be consumed in outer space**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
