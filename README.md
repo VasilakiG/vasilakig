@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Coca-Cola was the first soft drink to be consumed in outer space**
+- ⚡ Daily fun fact: **A common name for pincurls is also spitcurls because woman sometimes wet their hair with their saliva before curling it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
