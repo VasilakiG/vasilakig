@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A common name for pincurls is also spitcurls because woman sometimes wet their hair with their saliva before curling it**
+- ⚡ Daily fun fact: **Marie Curie, the Nobel prize winning scientist who discovered radium, died of radiation poisoning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
