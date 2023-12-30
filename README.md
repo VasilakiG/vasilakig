@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Marie Curie, the Nobel prize winning scientist who discovered radium, died of radiation poisoning**
+- ⚡ Daily fun fact: **Brain damage will only occur if a fever goes above 107.6 degrees farenheit**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
