@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The chances of getting a cavity is higher if candy is eaten slowly throughout the day compared to eating it all at once and then brushing your teeth**
+- ⚡ Daily fun fact: **The most dangerous job in the United States is that of a fisherman, followed by logging and then an airline pilot**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
