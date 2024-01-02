@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The most dangerous job in the United States is that of a fisherman, followed by logging and then an airline pilot**
+- ⚡ Daily fun fact: **The country with the highest consumption of candy at 29.5 pounds annually per person is Denmark**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
