@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The country with the highest consumption of candy at 29.5 pounds annually per person is Denmark**
+- ⚡ Daily fun fact: **The largest diamond found in the United States was a 40.23 carat white diamond. It was found in 1924 and nicknamed the "Uncle Sam."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
