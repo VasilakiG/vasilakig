@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There have been 191 coops in Bolivia since it became a sovereign country in 1825**
+- ⚡ Daily fun fact: **The stomach of an adult can hold 1.5 liters of material**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
