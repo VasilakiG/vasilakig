@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The stomach of an adult can hold 1.5 liters of material**
+- ⚡ Daily fun fact: **During World War II, the very first bomb dropped on Berlin by the Allies killed the only elephant in the Berlin Zoo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
