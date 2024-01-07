@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **During World War II, the very first bomb dropped on Berlin by the Allies killed the only elephant in the Berlin Zoo**
+- ⚡ Daily fun fact: **American novelist Mark Twain was the first known author to submit a typed manuscript**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
