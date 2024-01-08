@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **American novelist Mark Twain was the first known author to submit a typed manuscript**
+- ⚡ Daily fun fact: **The only flying saucer launch pad in the world is located in St. Paul, Alberta, Canada**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
