@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The only flying saucer launch pad in the world is located in St. Paul, Alberta, Canada**
+- ⚡ Daily fun fact: **Former U.S. President Franklin Pierce was arrested during his term as President for running over an old lady with his horse, but the charges were later dropped**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
