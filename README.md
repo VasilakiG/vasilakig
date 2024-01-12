@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first subway system in America was built in Boston, Massachusetts in 1897**
+- ⚡ Daily fun fact: **Billiards used to be so popular at one time that cigarette cards were issued featuring players**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
