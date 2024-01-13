@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Billiards used to be so popular at one time that cigarette cards were issued featuring players**
+- ⚡ Daily fun fact: **Heinz Catsup leaving the bottle travels at 25 miles per year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
