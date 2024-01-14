@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Heinz Catsup leaving the bottle travels at 25 miles per year**
+- ⚡ Daily fun fact: **The most expensive perfume in the world is Parfum VI, which was made by Arthur Burnham. A 4 inch bottle which is covered with diamonds and 24-carat gold costs $71,380**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
