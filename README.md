@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Great Britain has the highest consumption of ice cream than any other European nation**
+- ⚡ Daily fun fact: **A person who smokes a pack of cigarettes a day will on average lose two teeth every ten years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
