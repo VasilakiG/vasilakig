@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A person who smokes a pack of cigarettes a day will on average lose two teeth every ten years**
+- ⚡ Daily fun fact: **The American Airlines Sports Center, in Dallas, has most toilets per capita than any other sports and entertainment venue in the USA**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
