@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The American Airlines Sports Center, in Dallas, has most toilets per capita than any other sports and entertainment venue in the USA**
+- ⚡ Daily fun fact: **Scientists have determined that having guilty feelings may actually damage your immune system**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
