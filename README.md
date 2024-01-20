@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Scientists have determined that having guilty feelings may actually damage your immune system**
+- ⚡ Daily fun fact: **Every day, the Hubble telescope transmits enough data to fit 10,000 standard computer disks**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
