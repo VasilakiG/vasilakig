@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every day, the Hubble telescope transmits enough data to fit 10,000 standard computer disks**
+- ⚡ Daily fun fact: **In 2002, the most popular car color in North America was silver.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
