@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The green ring that is formed around the yolk of eggs that have been cooked too long is formed by the chemical reaction from the iron in the yolk and the sulphur in the white part of the egg**
+- ⚡ Daily fun fact: **A group of people that are hired to clap at a performance are called a claque**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
