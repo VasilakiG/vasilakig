@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A group of people that are hired to clap at a performance are called a claque**
+- ⚡ Daily fun fact: **The country with the highest consumption of candy at 29.5 pounds annually per person is Denmark**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
