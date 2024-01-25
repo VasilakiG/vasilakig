@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The country with the highest consumption of candy at 29.5 pounds annually per person is Denmark**
+- ⚡ Daily fun fact: **People in France own more pets in the world per person than any other country**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
