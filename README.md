@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The five Olympic rings represent the five continents linked together in friendship**
+- ⚡ Daily fun fact: **During a typical human life span, the human heart will beat approximately 2.5 billion times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
