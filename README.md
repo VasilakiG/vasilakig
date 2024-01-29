@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **During a typical human life span, the human heart will beat approximately 2.5 billion times**
+- ⚡ Daily fun fact: **Venus is the only planet that rotates clockwise**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
