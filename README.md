@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Venus is the only planet that rotates clockwise**
+- ⚡ Daily fun fact: **A chicken is 75% water**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
