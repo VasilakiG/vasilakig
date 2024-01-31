@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A chicken is 75% water**
+- ⚡ Daily fun fact: **Just like fingerprints, every cats nose pad is different**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
