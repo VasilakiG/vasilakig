@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Just like fingerprints, every cats nose pad is different**
+- ⚡ Daily fun fact: **The Faberge, "Winter Egg" was sold in 1994 for $5.6 million. This is the most expensive decorative egg that has ever been sold**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
