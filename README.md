@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Faberge, "Winter Egg" was sold in 1994 for $5.6 million. This is the most expensive decorative egg that has ever been sold**
+- ⚡ Daily fun fact: **The longest one-syllable word in the English language is "screeched."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
