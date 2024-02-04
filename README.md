@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Great White sharks have about 3,000 teeth**
+- ⚡ Daily fun fact: **The trunk of an elephant can hold up to two gallons of water**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
