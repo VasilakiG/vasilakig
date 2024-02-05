@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The trunk of an elephant can hold up to two gallons of water**
+- ⚡ Daily fun fact: **The smallest man ever was Gul Mohammed (1957-1997) of India, who measured 1 feet, 10? inches**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
