@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The trunk of an elephant can hold up to two gallons of water**
+- ⚡ Daily fun fact: **The highest point in France is Mont Blanc, located in the Alps.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
