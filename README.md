@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The highest point in France is Mont Blanc, located in the Alps.**
+- ⚡ Daily fun fact: **In 1943, the July issue of "Transportation Magazine" had an article entitled "1943 Guide to Hiring Women."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
