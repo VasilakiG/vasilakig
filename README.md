@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1943, the July issue of "Transportation Magazine" had an article entitled "1943 Guide to Hiring Women."**
+- ⚡ Daily fun fact: **On average, a hen lays 300 eggs per year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
