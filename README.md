@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On average, a hen lays 300 eggs per year**
+- ⚡ Daily fun fact: **The average person falls asleep in about 12 to 14 minutes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
