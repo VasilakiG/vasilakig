@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One in five Americans move homes every year**
+- ⚡ Daily fun fact: **The American Automobile association was formed in 1905 for the sole purpose of warning motorists of police speed traps**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
