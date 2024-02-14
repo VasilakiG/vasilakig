@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Toronto was the first city in the world with a computerized traffic signal system**
+- ⚡ Daily fun fact: **Birds do not sweat, as they do not have sweat glands**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
