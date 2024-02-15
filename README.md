@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Birds do not sweat, as they do not have sweat glands**
+- ⚡ Daily fun fact: **A human head remains conscious for about 15 to 20 seconds after it is been decapitated**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
