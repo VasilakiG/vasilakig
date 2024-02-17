@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It is physically impossible for pigs to look up into the sky**
+- ⚡ Daily fun fact: **People from the United States eat the most chicken per person than anywhere else in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
