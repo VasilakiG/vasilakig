@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **People from the United States eat the most chicken per person than anywhere else in the world**
+- ⚡ Daily fun fact: **Tycho Brahe, a 16th century astronomer, lost his nose in a duel with one of his students over a mathematical computation. He wore a silver replacement nose for the rest of his life**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
