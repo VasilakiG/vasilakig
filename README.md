@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Black pepper is the most popular spice in the world**
+- ⚡ Daily fun fact: **In a study conducted regarding toilet paper usage, Americans are said to use the most toilet paper per trip to the bathroom, which was seven sheets of toilet paper per trip**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
