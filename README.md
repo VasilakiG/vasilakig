@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Five Jell-O flavors that flopped: celery, coffee, cola, apple, andchocolate.**
+- ⚡ Daily fun fact: **The average life span of a single red blood cell is 120 days**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
