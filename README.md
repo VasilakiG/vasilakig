@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average life span of a single red blood cell is 120 days**
+- ⚡ Daily fun fact: **38% of Americans eat breakfast everyday**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
