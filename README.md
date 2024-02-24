@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **38% of Americans eat breakfast everyday**
+- ⚡ Daily fun fact: **A slug has four noses**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
