@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A slug has four noses**
+- ⚡ Daily fun fact: **In 1982, a cactus in Phoenix, Arizona killed a man. David Grundman fired two shotgun blasts at a giant saguaro cactus that ended up falling on top of him**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
