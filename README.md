@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In ancient Egypt, the only person who was allowed to wear cotton was the High Priest**
+- ⚡ Daily fun fact: **More than 260,000 people have been killed by volcanic activity since 1700 AD.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
