@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **More than 260,000 people have been killed by volcanic activity since 1700 AD.**
+- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
