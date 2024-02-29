@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
+- ⚡ Daily fun fact: **The windiest place in the world is Mount Washington, New Hampshire, USA. The highest wind was on April 12, 1934 when it reached 231 mph.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
