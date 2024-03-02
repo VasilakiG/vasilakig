@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **British scientists have found evidence that heart attacks increase significantly for people who watch soccer penalty shoot-outs**
+- ⚡ Daily fun fact: **In humans, the epidermal layer of skin, which consists of many layers of skin regenerates every 27 days**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
