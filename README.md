@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In humans, the epidermal layer of skin, which consists of many layers of skin regenerates every 27 days**
+- ⚡ Daily fun fact: **Bill Gates house was partially designed using a Macintosh computer. new**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
