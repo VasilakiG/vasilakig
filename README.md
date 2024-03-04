@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Bill Gates house was partially designed using a Macintosh computer. new**
+- ⚡ Daily fun fact: **One bushel of wheat can make enough sandwiches that you could eat three sandwiches a day for over six months**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
