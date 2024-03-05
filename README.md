@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One bushel of wheat can make enough sandwiches that you could eat three sandwiches a day for over six months**
+- ⚡ Daily fun fact: **The largest wedding chapel in Las Vegas is the Viva Las Vegas Chapel, which can seat 100 people**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
