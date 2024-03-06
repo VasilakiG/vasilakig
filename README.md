@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The largest wedding chapel in Las Vegas is the Viva Las Vegas Chapel, which can seat 100 people**
+- ⚡ Daily fun fact: **Pilgrims did not eat potatoes for Thanksgiving as they thought they were poisonous**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
