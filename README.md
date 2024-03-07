@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pilgrims did not eat potatoes for Thanksgiving as they thought they were poisonous**
+- ⚡ Daily fun fact: **Tohru Iwatani, the inventor of the video game Pac-Man, came up with the idea when he saw a pizza with a slice missing at a dinner party**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
