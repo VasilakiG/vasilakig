@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Left-handed people are better at sports that require good spatial judgment and fast reaction, compared to right-handed individuals**
+- ⚡ Daily fun fact: **When a porcupine is born, its quills are soft and mostly white, but harden within hours**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
