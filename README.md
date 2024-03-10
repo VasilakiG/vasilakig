@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **When a porcupine is born, its quills are soft and mostly white, but harden within hours**
+- ⚡ Daily fun fact: **Cats have over one hundred vocal sounds, dogs only have about ten**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
