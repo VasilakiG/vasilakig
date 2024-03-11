@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cats have over one hundred vocal sounds, dogs only have about ten**
+- ⚡ Daily fun fact: **In the United States birds and planes collided more than 22,000 times between the years of 1990 and 1998**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
