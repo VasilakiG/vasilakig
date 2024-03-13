@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Each Jelly Belly jelly belly bean has 4 calories**
+- ⚡ Daily fun fact: **The heaviest United States President was William Howard Taft who weighed 332 pounds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
