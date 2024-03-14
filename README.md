@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The heaviest United States President was William Howard Taft who weighed 332 pounds**
+- ⚡ Daily fun fact: **Natural gas does not have any odor. In order to detect a gas leak, some gas companies add a chemical that smells similar like rotten eggs.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
