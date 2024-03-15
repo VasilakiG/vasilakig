@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Natural gas does not have any odor. In order to detect a gas leak, some gas companies add a chemical that smells similar like rotten eggs.**
+- ⚡ Daily fun fact: **A group of tigers is called a streak**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
