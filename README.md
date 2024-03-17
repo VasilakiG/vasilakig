@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The eight most popular foods to cause food allergies are: milk, eggs, wheat, peanuts, soy, tree nuts, fish, and shellfish**
+- ⚡ Daily fun fact: **The San Francisco Cable cars are the only mobile National Monuments**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
