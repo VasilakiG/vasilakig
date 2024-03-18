@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The San Francisco Cable cars are the only mobile National Monuments**
+- ⚡ Daily fun fact: **The Stanley Cup originally was only seven and a half inches high**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
