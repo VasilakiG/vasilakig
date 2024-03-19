@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Stanley Cup originally was only seven and a half inches high**
+- ⚡ Daily fun fact: **Frog-eating bats identify edible frogs from poisonous ones by listening to the mating calls of male frogs. Frogs counter this by hiding and using short, difficult to locate calls**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
