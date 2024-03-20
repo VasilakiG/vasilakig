@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Frog-eating bats identify edible frogs from poisonous ones by listening to the mating calls of male frogs. Frogs counter this by hiding and using short, difficult to locate calls**
+- ⚡ Daily fun fact: **There are no blossoms on the branches of a fig tree, instead it is inside the fruit**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
