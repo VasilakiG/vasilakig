@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Belgium, there is a museum that is just for strawberries**
+- ⚡ Daily fun fact: **The average four year-old child asks over four hundred questions a day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
