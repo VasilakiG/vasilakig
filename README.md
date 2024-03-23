@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average four year-old child asks over four hundred questions a day**
+- ⚡ Daily fun fact: **In some parts of the Atacama Desert it has never rained**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
