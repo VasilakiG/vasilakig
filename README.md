@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In some parts of the Atacama Desert it has never rained**
+- ⚡ Daily fun fact: **Bananas contain a natural chemical which can make a person happy. This same chemical is found in Prozac**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
