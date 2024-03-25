@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Bananas contain a natural chemical which can make a person happy. This same chemical is found in Prozac**
+- ⚡ Daily fun fact: **It has been suggested that shepherds are responsible for inventing the game golf. It is said that they used to use their staffs to hit the stones**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
