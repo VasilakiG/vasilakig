@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It has been suggested that shepherds are responsible for inventing the game golf. It is said that they used to use their staffs to hit the stones**
+- ⚡ Daily fun fact: **All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
