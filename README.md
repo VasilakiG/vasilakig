@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill**
+- ⚡ Daily fun fact: **The tallest mammal in the world is the giraffe**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
