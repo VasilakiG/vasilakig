@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The tallest mammal in the world is the giraffe**
+- ⚡ Daily fun fact: **American Airlines saved $40,000 in 1987 by eliminating 1 olive from each salad served in first-class**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
