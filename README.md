@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **American Airlines saved $40,000 in 1987 by eliminating 1 olive from each salad served in first-class**
+- ⚡ Daily fun fact: **The stapler was invented in Spring Valley, Minnesota.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
