@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The stapler was invented in Spring Valley, Minnesota.**
+- ⚡ Daily fun fact: **People that suffer from gum disease are twice as likely to have a stroke or heart attack**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
