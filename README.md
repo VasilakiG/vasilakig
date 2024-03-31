@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **People that suffer from gum disease are twice as likely to have a stroke or heart attack**
+- ⚡ Daily fun fact: **Stalks of sugar cane can reach up to 30 feet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
