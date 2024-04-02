@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Stalks of sugar cane can reach up to 30 feet**
+- ⚡ Daily fun fact: **A duck's quack doesn't echo, and no one knows why.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
