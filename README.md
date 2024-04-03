@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A duck's quack doesn't echo, and no one knows why.**
+- ⚡ Daily fun fact: **Every year approximately 3,000 people choke to death**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
