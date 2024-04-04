@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every year approximately 3,000 people choke to death**
+- ⚡ Daily fun fact: **During one seven year period, Thomas Edison obtained approximately three hundred patents. In is whole life he obtained over one thousand patents.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
