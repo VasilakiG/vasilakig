@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **During one seven year period, Thomas Edison obtained approximately three hundred patents. In is whole life he obtained over one thousand patents.**
+- ⚡ Daily fun fact: **"Bookkeeper" is the only word in English language with three consecutive double letters**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
