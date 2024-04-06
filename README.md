@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **"Bookkeeper" is the only word in English language with three consecutive double letters**
+- ⚡ Daily fun fact: **The largest diamond found in the United States was a 40.23 carat white diamond. It was found in 1924 and nicknamed the "Uncle Sam."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
