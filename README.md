@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Uape Indians, who live in the Amazon, mix the ashes of their recently cremated relatives with alcohol, then all members of the family drink the mix with fond memories of the deceased**
+- ⚡ Daily fun fact: **After 8 months, babies are more likely to get a diaper rash**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
