@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **After 8 months, babies are more likely to get a diaper rash**
+- ⚡ Daily fun fact: **Nutmeg is extremely poisonous if injected intraveinously.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
