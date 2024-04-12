@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Nutmeg is extremely poisonous if injected intraveinously.**
+- ⚡ Daily fun fact: **The average American eats 35,000 cookies in his/her lifetime**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
