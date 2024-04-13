@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average American eats 35,000 cookies in his/her lifetime**
+- ⚡ Daily fun fact: **Chewing on gum while cutting onions can help a person from producing tears**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
