@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Chewing on gum while cutting onions can help a person from producing tears**
+- ⚡ Daily fun fact: **The last land battle of the U.S. Civil War was fought in Texas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
