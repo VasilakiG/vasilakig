@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The last land battle of the U.S. Civil War was fought in Texas**
+- ⚡ Daily fun fact: **In February 1878, the first telephone book was published in New Haven, Connecticut. The book was one page long and had fifty names in it.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
