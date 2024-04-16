@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In February 1878, the first telephone book was published in New Haven, Connecticut. The book was one page long and had fifty names in it.**
+- ⚡ Daily fun fact: **Over half the textile fibers that are used in the world are cotton**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
