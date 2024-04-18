@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The most popular meal ordered at restaurants in the U.S. is fried chicken**
+- ⚡ Daily fun fact: **In Ancient Egypt, cats were often buried with their masters, or in a special cemetary for cats**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
