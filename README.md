@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Ancient Egypt, cats were often buried with their masters, or in a special cemetary for cats**
+- ⚡ Daily fun fact: **Smelling bananas can help a person lose weight**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
