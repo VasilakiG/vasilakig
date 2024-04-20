@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Smelling bananas can help a person lose weight**
+- ⚡ Daily fun fact: **A Hungarian named Ladislo Biro invented the first ballpoint pen in 1938.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
