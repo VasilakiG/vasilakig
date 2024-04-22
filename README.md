@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1916, an elephant was tried and hung for murder in Erwin, Tennessee**
+- ⚡ Daily fun fact: **The human liver performs over 500 functions**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
