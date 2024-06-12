@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The human liver performs over 500 functions**
+- ⚡ Daily fun fact: **A "hairbreadth away" is 1/48 of an inch**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
