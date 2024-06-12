@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A "hairbreadth away" is 1/48 of an inch**
+- ⚡ Daily fun fact: **Many people in parts of China eat insects. Some common insects are bean worms, scoprions, and locusts**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
