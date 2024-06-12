@@ -3,6 +3,7 @@ name: Update Fun Fact
 on:
   schedule:
     - cron: '0 0 * * *'  # Run the job every day at midnight (UTC)
+  workflow_dispatch:  # Manually trigger the workflow
 
 jobs:
   update-fun-fact:
