@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Many people in parts of China eat insects. Some common insects are bean worms, scoprions, and locusts**
+- ⚡ Daily fun fact: **There are approximately 100,000 miles of blood vessels in the human body**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
