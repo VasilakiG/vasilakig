@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are approximately 100,000 miles of blood vessels in the human body**
+- ⚡ Daily fun fact: **The first subway system in America was built in Boston, Massachusetts in 1897.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
