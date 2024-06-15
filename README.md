@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first subway system in America was built in Boston, Massachusetts in 1897.**
+- ⚡ Daily fun fact: **If Wal-Mart was classified as a country, it would be the 24th most productive country in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
