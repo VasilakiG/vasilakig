@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **If Wal-Mart was classified as a country, it would be the 24th most productive country in the world**
+- ⚡ Daily fun fact: **Coca-Cola was originally green**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
