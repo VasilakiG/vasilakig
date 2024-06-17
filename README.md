@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Coca-Cola was originally green**
+- ⚡ Daily fun fact: **In Australia, a common "Boxing day" activity is surfing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
