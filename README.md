@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Australia, a common "Boxing day" activity is surfing**
+- ⚡ Daily fun fact: **In 1876, Maria Spelterina was the first woman to ever cross Niagara Falls on a high wire**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
