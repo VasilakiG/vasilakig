@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1876, Maria Spelterina was the first woman to ever cross Niagara Falls on a high wire**
+- ⚡ Daily fun fact: **Cow is a Japanese brand of shaving foam**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
