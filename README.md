@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cow is a Japanese brand of shaving foam**
+- ⚡ Daily fun fact: **The phrase "rule of thumb" is derived from an old English law whichstated that you couldn't beat your wife with anything wider than yourthumb.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
