@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The phrase "rule of thumb" is derived from an old English law whichstated that you couldn't beat your wife with anything wider than yourthumb.**
+- ⚡ Daily fun fact: **The flatulation from domesticated cows produce about 30% of the methane on this planet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
