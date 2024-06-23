@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A Canadian Tour company offers a two-day course in igloo building**
+- ⚡ Daily fun fact: **Kit Kat chocolate bar was introduced to the market in 1935**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
