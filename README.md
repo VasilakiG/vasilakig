@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Kit Kat chocolate bar was introduced to the market in 1935**
+- ⚡ Daily fun fact: **Robert Wadlow is the tallest man recorded in history. He grew to be eight feet and eleven inches and weighed 490 pounds when he died**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
