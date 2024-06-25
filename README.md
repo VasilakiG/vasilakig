@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Robert Wadlow is the tallest man recorded in history. He grew to be eight feet and eleven inches and weighed 490 pounds when he died**
+- ⚡ Daily fun fact: **More people die from eating sharks then from being eaten by them. This is due to a poison in shark meat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
