@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **More people die from eating sharks then from being eaten by them. This is due to a poison in shark meat**
+- ⚡ Daily fun fact: **The first flavour of a cheese ball was called "Cheddy Blue."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
