@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first flavour of a cheese ball was called "Cheddy Blue."**
+- ⚡ Daily fun fact: **The first person to die in the electric chair was William Kemmler, an ax murderer from New York on August 6, 1890**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
