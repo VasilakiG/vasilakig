@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first person to die in the electric chair was William Kemmler, an ax murderer from New York on August 6, 1890**
+- ⚡ Daily fun fact: **A catfish has about 100,000 taste buds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
