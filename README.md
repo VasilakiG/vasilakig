@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A catfish has about 100,000 taste buds**
+- ⚡ Daily fun fact: **One-third pound stalk of broccoli contains more vitamin C than 204 apples**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
