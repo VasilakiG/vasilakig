@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One-third pound stalk of broccoli contains more vitamin C than 204 apples**
+- ⚡ Daily fun fact: **The word Lethologica describes the state of not remembering the word you want to say**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
