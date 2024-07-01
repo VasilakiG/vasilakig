@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word Lethologica describes the state of not remembering the word you want to say**
+- ⚡ Daily fun fact: **The name "Tonka" trucks was named after Lake Minnetonka located in Minnesota. Tonka means "great" in Sioux**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
