@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Former U.S. President Franklin Pierce was arrested during his term as President for running over an old lady with his horse, but the charges were later dropped**
+- ⚡ Daily fun fact: **Great Britain has the highest consumption of ice cream than any other European nation**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
