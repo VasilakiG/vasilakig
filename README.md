@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Great Britain has the highest consumption of ice cream than any other European nation**
+- ⚡ Daily fun fact: **In WWII, when allied armies reached the Rhine River the first thing men did was pee in it. This was pretty universal from the lowest private to Winston Churchill (who made a big show of it). Gen. Patton had himself photographed in the act**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
