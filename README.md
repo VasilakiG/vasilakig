@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The windiest place in the world is Mount Washington, New Hampshire, USA. The highest wind was on April 12, 1934 when it reached 231 mph.**
+- ⚡ Daily fun fact: **Nutmeg is extremely poisonous if injected intravenously**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
