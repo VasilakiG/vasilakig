@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Nutmeg is extremely poisonous if injected intravenously**
+- ⚡ Daily fun fact: **On September 9, 1950 dubbed laughter was used for the first time on television. It was used for the sitcom "The Hank McCune Show."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
