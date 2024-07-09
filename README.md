@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **On September 9, 1950 dubbed laughter was used for the first time on television. It was used for the sitcom "The Hank McCune Show."**
+- ⚡ Daily fun fact: **There are approximately 2,700 different species of mosquitoes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
