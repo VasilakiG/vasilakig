@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are approximately 2,700 different species of mosquitoes**
+- ⚡ Daily fun fact: **The five Olympic rings represent the five continents linked together in friendship**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
