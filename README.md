@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The five Olympic rings represent the five continents linked together in friendship**
+- ⚡ Daily fun fact: **The accent that Mike Myers used for the character Shrek came from the accent that his mother would use when she was telling him bedtime stories when he was a child**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
