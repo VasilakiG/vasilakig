@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The accent that Mike Myers used for the character Shrek came from the accent that his mother would use when she was telling him bedtime stories when he was a child**
+- ⚡ Daily fun fact: **Approximately 60% of the water used by households during the summer is used for watering flowers, and lawns**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
