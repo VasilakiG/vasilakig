@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 60% of the water used by households during the summer is used for watering flowers, and lawns**
+- ⚡ Daily fun fact: **In 1657, the first chocolate house was opened in London, England**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
