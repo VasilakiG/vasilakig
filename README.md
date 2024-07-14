@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1657, the first chocolate house was opened in London, England**
+- ⚡ Daily fun fact: **On average, Americans spend 33% of their life sleeping**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
