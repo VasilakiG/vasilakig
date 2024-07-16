@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Hong Kong, delivery times are primarily influenced by traffic conditions on elevators. It often takes drivers longer to travel vertically than horizontally, as access to elevators is so congested during "high peak" hours. This is due to the volume of people residing in high rises**
+- ⚡ Daily fun fact: **55,700 people in the US are injured by jewelry each year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
