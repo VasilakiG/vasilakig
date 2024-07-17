@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **55,700 people in the US are injured by jewelry each year**
+- ⚡ Daily fun fact: **O.J. Simpson had a severe case of rickets and wore leg braces when he was a child**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
