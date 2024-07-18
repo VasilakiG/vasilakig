@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **O.J. Simpson had a severe case of rickets and wore leg braces when he was a child**
+- ⚡ Daily fun fact: **Richard Millhouse Nixon was the first US president whose name contains all the letters from the word "criminal." The second? William Jefferson Clinton**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
