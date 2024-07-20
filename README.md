@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Q-Tip Cotton Swabs were originally called Baby Gays**
+- ⚡ Daily fun fact: **If all the insects in the world were put on a scale, they would out weigh all creatures**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
