@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **If all the insects in the world were put on a scale, they would out weigh all creatures**
+- ⚡ Daily fun fact: **Millie the White House dog earned more than 4 times as much as President Bush in 1991. And, rightfully so**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
