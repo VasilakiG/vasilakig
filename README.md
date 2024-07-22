@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Millie the White House dog earned more than 4 times as much as President Bush in 1991. And, rightfully so**
+- ⚡ Daily fun fact: **The word "America" comes from the European explorer "Amerigo Vespucci**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
