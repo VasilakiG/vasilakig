@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word "America" comes from the European explorer "Amerigo Vespucci**
+- ⚡ Daily fun fact: **The longest fangs of a snake are found on the Gaboon Viper (Bitis gabonica), and can reach over 2 inches in length**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
