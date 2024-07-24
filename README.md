@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The longest fangs of a snake are found on the Gaboon Viper (Bitis gabonica), and can reach over 2 inches in length**
+- ⚡ Daily fun fact: **The amount of aluminum that Americans throw out in three months is enough to rebuild all American commercial planes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
