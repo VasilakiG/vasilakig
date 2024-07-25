@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The amount of aluminum that Americans throw out in three months is enough to rebuild all American commercial planes**
+- ⚡ Daily fun fact: **The cartoon character Popeye was actually based on a real person named Frank "Rocky" Fiegel who was a tough guy who was quite similar to Popeye physically**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
