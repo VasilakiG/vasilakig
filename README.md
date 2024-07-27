@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The study of twins is known as gemellology**
+- ⚡ Daily fun fact: **The least likely day to eat out in the United States is Monday**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
