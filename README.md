@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cows can detect odors up to five miles away**
+- ⚡ Daily fun fact: **It takes a sloth up to six days to digest the food it eats**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
