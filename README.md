@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It takes a sloth up to six days to digest the food it eats**
+- ⚡ Daily fun fact: **Soaking beans for twelve hours in water before they are cooked can reduce flatulence caused by beans**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
