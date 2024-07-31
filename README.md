@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Soaking beans for twelve hours in water before they are cooked can reduce flatulence caused by beans**
+- ⚡ Daily fun fact: **The DNA of humans is closer to a rat than a cat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
