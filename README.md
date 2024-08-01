@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The DNA of humans is closer to a rat than a cat**
+- ⚡ Daily fun fact: **The first words that Thomas A. Edison spoke into the phonograph were, "Mary had a little lamb."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
