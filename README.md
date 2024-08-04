@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 18 billion disposable diapers end up in landfills each year. These diapers can takes as long as 500 years to finally decompose**
+- ⚡ Daily fun fact: **The number of births that occur in India each year is higher than the entire population of Australia**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
