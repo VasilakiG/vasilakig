@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The number of births that occur in India each year is higher than the entire population of Australia**
+- ⚡ Daily fun fact: **It is common in Israel and Egypt to eat watermelon with feta cheese**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
