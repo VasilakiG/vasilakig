@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It is common in Israel and Egypt to eat watermelon with feta cheese**
+- ⚡ Daily fun fact: **Researches have discovered that eating five or more apples a week is linked to better functioning of the lungs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
