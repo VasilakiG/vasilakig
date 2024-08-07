@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Researches have discovered that eating five or more apples a week is linked to better functioning of the lungs**
+- ⚡ Daily fun fact: **70% of the poor people in the world are female**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
