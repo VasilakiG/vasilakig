@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **70% of the poor people in the world are female**
+- ⚡ Daily fun fact: **The Montreal Canadians hockey team has won the most Stanley Cups with 24**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
