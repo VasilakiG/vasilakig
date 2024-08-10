@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Richard Millhouse Nixon was the first US president whose name contains all the letters from the word "criminal." The second? William Jefferson Clinton**
+- ⚡ Daily fun fact: **With winds of 50 miles per hour, The Statue of Liberty sways three inches and the torch sways five inches**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
