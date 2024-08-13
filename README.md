@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There have been 191 coops in Bolivia since it became a sovereign country in 1825**
+- ⚡ Daily fun fact: **The first United States president to visit China was Richard Nixon**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
