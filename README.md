@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first United States president to visit China was Richard Nixon**
+- ⚡ Daily fun fact: **Following directions off the Internet and chemicals obtained from a mail order company, a team of U.S. scientists created an identical copy of the polio virus.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
