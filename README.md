@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Following directions off the Internet and chemicals obtained from a mail order company, a team of U.S. scientists created an identical copy of the polio virus.**
+- ⚡ Daily fun fact: **In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
