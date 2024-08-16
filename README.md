@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year**
+- ⚡ Daily fun fact: **The fastest flying butterfly is the Monarch, which has been clocked with a speed as high as 17 miles per hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
