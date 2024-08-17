@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The fastest flying butterfly is the Monarch, which has been clocked with a speed as high as 17 miles per hour**
+- ⚡ Daily fun fact: **There are 158 verses in the Greek National Anthem**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
