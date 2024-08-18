@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are 158 verses in the Greek National Anthem**
+- ⚡ Daily fun fact: **The hippopotamus has the capability to remain underwater for as long as twenty-five minutes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
