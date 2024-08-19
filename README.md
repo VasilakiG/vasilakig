@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The hippopotamus has the capability to remain underwater for as long as twenty-five minutes**
+- ⚡ Daily fun fact: **The word Cotton originates from the Arabic word "Qutun."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
