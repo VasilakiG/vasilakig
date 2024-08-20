@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word Cotton originates from the Arabic word "Qutun."**
+- ⚡ Daily fun fact: **Even though red roses looks the same, there are over 900 different types of red roses**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
