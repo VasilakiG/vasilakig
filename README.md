@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Even though red roses looks the same, there are over 900 different types of red roses**
+- ⚡ Daily fun fact: **In Colorado, there are about 83,000 dairy cows**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
