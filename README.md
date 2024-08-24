@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Water expands 9% when it is frozen**
+- ⚡ Daily fun fact: **Instead of a birthday cake, many children in Russia are given a birthday pie**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
