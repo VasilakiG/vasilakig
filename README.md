@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Instead of a birthday cake, many children in Russia are given a birthday pie**
+- ⚡ Daily fun fact: **The first product that the toy company Mattel came out with was picture frames**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
