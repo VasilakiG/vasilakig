@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The sun is approximately 149 million kilometres from the earth**
+- ⚡ Daily fun fact: **Everyday, U.S. business use enough paper to circle the Earth over 20 times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
