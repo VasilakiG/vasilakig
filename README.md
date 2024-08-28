@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Everyday, U.S. business use enough paper to circle the Earth over 20 times**
+- ⚡ Daily fun fact: **Rabbits can live up to ten years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
