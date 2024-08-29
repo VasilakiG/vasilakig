@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Rabbits can live up to ten years**
+- ⚡ Daily fun fact: **There are no blossoms on the branches of a fig tree, instead it is inside the fruit**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
