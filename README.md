@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are no blossoms on the branches of a fig tree, instead it is inside the fruit**
+- ⚡ Daily fun fact: **The first letter Vanna White ever turned on the game show Wheel of Fortune was the letter "T."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
