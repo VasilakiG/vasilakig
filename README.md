@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1982, Larry Walters tied 24 weather balloons to his lawn chair in Los Angeles and climbed to an altitude of 16,000 feet**
+- ⚡ Daily fun fact: **When a polar bear cub is born, it can not see or hear. It takes approximately a month for the cub to start to see and hear**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
