@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **When a polar bear cub is born, it can not see or hear. It takes approximately a month for the cub to start to see and hear**
+- ⚡ Daily fun fact: **There is an automobile model called Stutz Bearcat.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
