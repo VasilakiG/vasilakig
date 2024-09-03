@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There is an automobile model called Stutz Bearcat.**
+- ⚡ Daily fun fact: **850 peanuts are needed to make an 18 oz. jar of peanut butter**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
