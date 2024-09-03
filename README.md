@@ -4,7 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **C++, CMake, Embedded Systems, GameDev(C#, Unity)**
+- 🌱 Learning **mDNS, C++, CMake, GameDev(C#, Unity)**
   
 - ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/42dotmk/robot4e, https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
 - ⚒️ Working on my own game and some upcoming web platforms
