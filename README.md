@@ -6,8 +6,8 @@
 
 - 🌱 Learning **C++, CMake, Embedded Systems, GameDev(C#, Unity)**
   
-- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/MarioStojcevski/eestec.mk (https://eestec.mk/)
-- ⚒️ Working on https://github.com/42dotmk/robot4e, https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
+- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/42dotmk/robot4e, https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
+- ⚒️ Working on my own game and some upcoming platforms
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
