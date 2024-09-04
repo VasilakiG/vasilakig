@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **850 peanuts are needed to make an 18 oz. jar of peanut butter**
+- ⚡ Daily fun fact: **Snails eat with a rasping mouth called a "radula," which has thousands of teeth**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
