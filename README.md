@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Snails eat with a rasping mouth called a "radula," which has thousands of teeth**
+- ⚡ Daily fun fact: **The number of births that occur in India each year is higher than the entire population of Australia**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
