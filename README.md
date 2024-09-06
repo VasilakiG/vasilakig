@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The number of births that occur in India each year is higher than the entire population of Australia**
+- ⚡ Daily fun fact: **In one gram of soil, about ten million bacteria live in it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
