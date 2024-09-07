@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In one gram of soil, about ten million bacteria live in it**
+- ⚡ Daily fun fact: **The White House has 35 bathrooms, 3 elevators, 132 rooms, and 412 doors in it**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
