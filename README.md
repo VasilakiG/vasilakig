@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The White House has 35 bathrooms, 3 elevators, 132 rooms, and 412 doors in it**
+- ⚡ Daily fun fact: **At the White House, president John Adams was said to be the first to display fireworks there**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
