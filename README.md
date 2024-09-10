@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The chewing gum Juicy Fruit has 10 calories. This is approximately the same as a bite of whole wheat bread**
+- ⚡ Daily fun fact: **The reason why bubble gum is pink is because the inventor only had pink colouring left. Ever since then, the colour of bubble gum has been predominantly pink**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
