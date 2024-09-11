@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The reason why bubble gum is pink is because the inventor only had pink colouring left. Ever since then, the colour of bubble gum has been predominantly pink**
+- ⚡ Daily fun fact: **Half of a cup of figs will give you just as much calcium as half a cup of milk**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
