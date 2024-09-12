@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Half of a cup of figs will give you just as much calcium as half a cup of milk**
+- ⚡ Daily fun fact: **Many people in parts of China eat insects. Some common insects are bean worms, scoprions, and locusts**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
