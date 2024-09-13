@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Many people in parts of China eat insects. Some common insects are bean worms, scoprions, and locusts**
+- ⚡ Daily fun fact: **Mass murderer Charles Manson recorded an album titled "Lie."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
