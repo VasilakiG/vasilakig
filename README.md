@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Mass murderer Charles Manson recorded an album titled "Lie."**
+- ⚡ Daily fun fact: **In a year approximately 900 million trees are cut down to make the raw materials needed for American pulp mills and paper**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
