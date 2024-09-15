@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In a year approximately 900 million trees are cut down to make the raw materials needed for American pulp mills and paper**
+- ⚡ Daily fun fact: **In 1819, the USA purchased Florida from Spain for the cancellation of a $5 million debt**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
