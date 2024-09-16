@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1819, the USA purchased Florida from Spain for the cancellation of a $5 million debt**
+- ⚡ Daily fun fact: **People from North America prefer pickles with warts, where as Europeans prefer pickles with no warts**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
