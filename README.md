@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1998, Ten Speed Press publishing company published a book, "The Eat A Bug Cookbook" by David George Gordon that contains over 33 bug recipes**
+- ⚡ Daily fun fact: **At one time, pumpkins were recommended for removing freckles**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
