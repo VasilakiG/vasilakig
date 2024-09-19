@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **At one time, pumpkins were recommended for removing freckles**
+- ⚡ Daily fun fact: **Iguanas can stay under water for up to thirty minutes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
