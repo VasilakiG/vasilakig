@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Iguanas can stay under water for up to thirty minutes**
+- ⚡ Daily fun fact: **Tiger Woods is the first athlete to has been named "Sportsman of the Year" by magazine Sports Illustrated two times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
