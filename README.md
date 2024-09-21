@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Tiger Woods is the first athlete to has been named "Sportsman of the Year" by magazine Sports Illustrated two times**
+- ⚡ Daily fun fact: **Thirty to 40 gallons of sugar maple sap must be boiled down to make just one gallon of maple syrup**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
