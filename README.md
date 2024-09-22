@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Thirty to 40 gallons of sugar maple sap must be boiled down to make just one gallon of maple syrup**
+- ⚡ Daily fun fact: **The tallest woman that ever lived was Zeng Jinlian who was 8 feet 2 inches tall of China. Shed died at the age of 17**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
