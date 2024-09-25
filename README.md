@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A Canadian, Troy Hurtubise, spent $100,000 and almost went bankrupt building a RoboCop style suit so that he could withstand a bear attack**
+- ⚡ Daily fun fact: **Men are four times more likely to be struck by lightning than women**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
