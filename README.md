@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Men are four times more likely to be struck by lightning than women**
+- ⚡ Daily fun fact: **A ripe cranberry will bounce. Another name for a cranberry is bounceberry**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
