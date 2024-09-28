@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In ancient Rome, it was considered a sign of leadership to be born with a crooked nose**
+- ⚡ Daily fun fact: **Queen Elizabeth I always wore a necklace with a little perfume bottle attached everywhere she went**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
