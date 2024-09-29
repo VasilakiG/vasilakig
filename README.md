@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Queen Elizabeth I always wore a necklace with a little perfume bottle attached everywhere she went**
+- ⚡ Daily fun fact: **In the United States, approximately 135 million cars travel every day on the streets, roads, and interstates.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
