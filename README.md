@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The triangular shape that Toblerone chocolates are packaged in, is protected by law**
+- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
