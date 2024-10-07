@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Kiwis are the only known bird to have nostrils located at the tip of their beak**
+- ⚡ Daily fun fact: **There are an equivalent number of cows and people in Friesland, Netherlands**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
