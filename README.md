@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are an equivalent number of cows and people in Friesland, Netherlands**
+- ⚡ Daily fun fact: **Rabbits can live up to ten years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
