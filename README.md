@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Rabbits can live up to ten years**
+- ⚡ Daily fun fact: **There was no punctuation until the 15th century**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
