@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There was no punctuation until the 15th century**
+- ⚡ Daily fun fact: **A language becomes extinct in this world every two weeks**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
