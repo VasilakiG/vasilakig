@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A language becomes extinct in this world every two weeks**
+- ⚡ Daily fun fact: **The average temperature on Earth is 15 degrees celcius.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
