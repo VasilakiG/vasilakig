@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average temperature on Earth is 15 degrees celcius.**
+- ⚡ Daily fun fact: **Tomatina is the legendary Spanish tomato-throwing festival held in Bunol, Spain**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
