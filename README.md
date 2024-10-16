@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Historically, a blue ribbon has been awarded for first prize**
+- ⚡ Daily fun fact: **Approximately 125 people die in the United States from an anaphylaxis to foods each year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
