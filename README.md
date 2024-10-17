@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 125 people die in the United States from an anaphylaxis to foods each year**
+- ⚡ Daily fun fact: **The country of Bolivia is named after a fighter Simon Bolivar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
