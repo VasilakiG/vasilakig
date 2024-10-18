@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The country of Bolivia is named after a fighter Simon Bolivar**
+- ⚡ Daily fun fact: **The tuatara lizard of New Zealand has three eyes, two in the center of its head and one on the top of its head**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
