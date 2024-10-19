@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The tuatara lizard of New Zealand has three eyes, two in the center of its head and one on the top of its head**
+- ⚡ Daily fun fact: **David McConnell started the California Perfume Company (CPC) in 1886. Today the company is known as Avon, which he named after his favorite playwright William Shakespeare, and Stratford on Avon**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
