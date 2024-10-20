@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **David McConnell started the California Perfume Company (CPC) in 1886. Today the company is known as Avon, which he named after his favorite playwright William Shakespeare, and Stratford on Avon**
+- ⚡ Daily fun fact: **The Main Library at Indiana University sinks over an inch every year because when it was built, engineers failed to take into account the weight of all the books that would occupy the building**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
