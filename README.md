@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Main Library at Indiana University sinks over an inch every year because when it was built, engineers failed to take into account the weight of all the books that would occupy the building**
+- ⚡ Daily fun fact: **In the world, the Netherlands has the highest concentration of museums in the world. Just in Amsterdam alone there are 42 museums**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
