@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the world, the Netherlands has the highest concentration of museums in the world. Just in Amsterdam alone there are 42 museums**
+- ⚡ Daily fun fact: **The watch was invented by Peter Henlein of Nuremberg in 1510.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
