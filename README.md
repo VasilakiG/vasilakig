@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The watch was invented by Peter Henlein of Nuremberg in 1510.**
+- ⚡ Daily fun fact: **Actor John Travolta was offered the role of Billy Flynn many times for the movie "Chicago." Richard Gere ended up playing the role**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
