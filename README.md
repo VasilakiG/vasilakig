@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Actor John Travolta was offered the role of Billy Flynn many times for the movie "Chicago." Richard Gere ended up playing the role**
+- ⚡ Daily fun fact: **Burger King restaurants serve over 400 million ounces of orange juice annually**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
