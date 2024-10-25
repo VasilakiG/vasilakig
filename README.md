@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Burger King restaurants serve over 400 million ounces of orange juice annually**
+- ⚡ Daily fun fact: **The blackberry bush is also called the "bramble."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
