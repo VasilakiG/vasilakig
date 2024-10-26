@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The blackberry bush is also called the "bramble."**
+- ⚡ Daily fun fact: **In the United States, you are more likely to be killed by a bee sting than a shark attack**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
