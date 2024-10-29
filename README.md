@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There were no red colored M⚡ Daily fun fact: **The artist Vincent Van Gogh sliced part of his ear off in madness**Ms from 1976 to 1987**
+- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
