@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
+- ⚡ Daily fun fact: **All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
