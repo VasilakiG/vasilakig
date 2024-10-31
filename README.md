@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill**
+- ⚡ Daily fun fact: **A salmon with two mouths, two sets of teeth and two tongues was caught by Bob Bateman of Canada**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
