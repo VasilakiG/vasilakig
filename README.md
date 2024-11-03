@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The founder of JC Penny had the middle name of Cash**
+- ⚡ Daily fun fact: **The TV show "Saturday Night Live" made its debut on October 11, 1975**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
