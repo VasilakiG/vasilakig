@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The TV show "Saturday Night Live" made its debut on October 11, 1975**
+- ⚡ Daily fun fact: **Ironically, when doctors in Los Angeles, California went on strike in 1976, the daily number of deaths in the city dropped 18%**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
