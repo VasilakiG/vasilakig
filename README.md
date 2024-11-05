@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Ironically, when doctors in Los Angeles, California went on strike in 1976, the daily number of deaths in the city dropped 18%**
+- ⚡ Daily fun fact: **There have been over fifty million Mr. Potato Heads sold since it came out in 1952**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
