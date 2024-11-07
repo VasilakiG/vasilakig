@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A snail can crawl across a razor blade without getting injured. This is possible because they excrete a slime that protects them**
+- ⚡ Daily fun fact: **The speed at which honey bees fly is at 15 miles per hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
