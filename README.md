@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The speed at which honey bees fly is at 15 miles per hour**
+- ⚡ Daily fun fact: **"Dreamt" is the only English word that ends in the letters "mt"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
