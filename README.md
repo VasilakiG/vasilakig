@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **"Dreamt" is the only English word that ends in the letters "mt"**
+- ⚡ Daily fun fact: **After the "Popeye" comic strip was launched in 1931, spinach consumption went up by thirty-three percent in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
