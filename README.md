@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **After the "Popeye" comic strip was launched in 1931, spinach consumption went up by thirty-three percent in the United States**
+- ⚡ Daily fun fact: **Ukrainian people celebrate Christmas on January 7th, which is the Orthodox Christmas Day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
