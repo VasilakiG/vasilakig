@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Ukrainian people celebrate Christmas on January 7th, which is the Orthodox Christmas Day**
+- ⚡ Daily fun fact: **Over 40 million Americans have chronic bad breath**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
