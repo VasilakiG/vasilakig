@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Over 40 million Americans have chronic bad breath**
+- ⚡ Daily fun fact: **In Israel, religious law forbids picking your nose on Sabbath**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
