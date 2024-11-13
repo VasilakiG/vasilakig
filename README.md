@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Israel, religious law forbids picking your nose on Sabbath**
+- ⚡ Daily fun fact: **Leonardo Da Vinci never signed or dated his most famous painting, the Mona Lisa**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
