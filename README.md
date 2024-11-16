@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The most popular place to burn candles in the house is the living room**
+- ⚡ Daily fun fact: **About twenty-five percent of the population sneeze when they are exposed to light**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
