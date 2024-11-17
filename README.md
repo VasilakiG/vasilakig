@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **About twenty-five percent of the population sneeze when they are exposed to light**
+- ⚡ Daily fun fact: **Women are twice as likely to be diagnosed with depression than men in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
