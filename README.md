@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Women are twice as likely to be diagnosed with depression than men in the United States**
+- ⚡ Daily fun fact: **It is said that grapefruit got its name because it grows like grapes in clusters. One cluster can have up to 25 grapefruits**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
