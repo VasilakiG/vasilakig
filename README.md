@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Great White Shark can grow to be more than twenty feet long and can weigh approximately 4,000 pounds**
+- ⚡ Daily fun fact: **When a women is pregnant, her senses are all heightened**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
