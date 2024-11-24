@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **An ostrich's eye is bigger that it's brain.**
+- ⚡ Daily fun fact: **There are more pigs than humans in Denmark**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
