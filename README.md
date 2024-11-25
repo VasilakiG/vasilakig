@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are more pigs than humans in Denmark**
+- ⚡ Daily fun fact: **The game Monopoly was once very popular in Cuba; however, Fidel Castro ordered that all games be destroyed**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
