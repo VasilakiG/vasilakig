@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The game Monopoly was once very popular in Cuba; however, Fidel Castro ordered that all games be destroyed**
+- ⚡ Daily fun fact: **Construction workers hard hats were first invented and used in the building of the Hoover Dam in 1933.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
