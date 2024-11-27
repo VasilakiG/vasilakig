@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Construction workers hard hats were first invented and used in the building of the Hoover Dam in 1933.**
+- ⚡ Daily fun fact: **The 1912, a wrestling match in Stockholm between Finn Alfred Asikainen and Russian Martin Klein lasted more than 11 hours. Klein eventually won, but was to tired to participate in the championship match**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
