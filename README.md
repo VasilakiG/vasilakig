@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the 1940s, the FCC assigned television's Channel 1 to mobile Services(two-way radios in taxicabs, for instance) but did not re-number theotherchannel assignments. That is why your TV set has channels 2 and up, butnochannel 1.**
+- ⚡ Daily fun fact: **When snakes are born with two heads, they fight each other for food**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
