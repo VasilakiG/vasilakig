@@ -13,7 +13,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **When snakes are born with two heads, they fight each other for food**
+- ⚡ Daily fun fact: **The A.A. Milne character of Winnie the Pooh made his animated film debut in 1966 in Winnie the Pooh and the Honey Tree**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
