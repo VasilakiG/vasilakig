@@ -4,10 +4,19 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **mDNS, C++, CMake, GameDev(C#, Unity)**
+- 🌱 Learning **Rust, mDNS, C++, GameDev(C#, Unity)**
   
-- ⚒️ Worked on https://python.mk/, https://summer23.best.org.mk/, https://github.com/42dotmk/robot4e, https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)
-- ⚒️ Working on my own game and some upcoming web platforms
+- ⚒️ Worked on:<br>
+      - https://python.mk/ (my own python learning platform for elementary school students)<br>
+      - https://summer23.best.org.mk/ (website for the 2023 Best Summer Course in Skopje)<br>
+      - https://github.com/42dotmk/robot4e (Robotic Arm)<br>
+      - https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)<br>
+- ⚒️ Working on:<br>
+      - Base42's Embedded Framework (upcoming)<br>
+      - https://github.com/42dotmk/StormWing (DIY drone) <br>
+      - my own upcoming game<br>
+      - https://github.com/42dotmk/colosseum (Competitive programming events organizing platform)<br>
+      - some upcoming web platforms<br>
 
 - 👨‍💻 You can read more about me at https://vasilaki.mk/
 
