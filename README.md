@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The mother of famous astronomer Johannes Kepler was accused of being a witch**
+- ⚡ Daily fun fact: **Each year 96 billion pounds of food is wasted in the U.S**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
