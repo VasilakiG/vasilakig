@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Each year 96 billion pounds of food is wasted in the U.S**
+- ⚡ Daily fun fact: **The state that grows the most cranberries is Wisconsin. More than 300 million pounds of cranberries are grown in Wisconsin**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
