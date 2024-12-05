@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
+- ⚡ Daily fun fact: **Bill Bowerman, the co-founder of the shoe company Nike, got his first shoe idea after staring at a waffle iron. This gave him the idea of using squared spikes to make the shoes lighter**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
