@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The ruby red slippers in the movie "The Wizard of Oz" were sold off at an auction for $660,000**
+- ⚡ Daily fun fact: **A chance of a woman having twins is increased after the age of 35. About 1 in 27 women will give birth to twins after this age. After 50 the chances of having twins is 1 in 9**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
