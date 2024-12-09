@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The most popular grown bulbs are tulips**
+- ⚡ Daily fun fact: **The kidneys filter over 400 gallons of blood each day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
