@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The kidneys filter over 400 gallons of blood each day**
+- ⚡ Daily fun fact: **The country of Fiji is made up of 332 islands**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
