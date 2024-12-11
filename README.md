@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The country of Fiji is made up of 332 islands**
+- ⚡ Daily fun fact: **There are 293 steps to the top of the Leaning Tower of Pisa**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
