@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There are 293 steps to the top of the Leaning Tower of Pisa**
+- ⚡ Daily fun fact: **For the movie "Tootsie" actor Dustin Hoffman thought of the title. His mother used to call him that as a child**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
