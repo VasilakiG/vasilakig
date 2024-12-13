@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **For the movie "Tootsie" actor Dustin Hoffman thought of the title. His mother used to call him that as a child**
+- ⚡ Daily fun fact: **An octopus has three hearts**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
