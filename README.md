@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **An octopus has three hearts**
+- ⚡ Daily fun fact: **The average day is actually 23 hours, 56 minutes and 4.09 seconds. We have a leap year every four years to make up for this shortfall**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
