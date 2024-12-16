@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The city of Seoul has been the capital city of Korea for more than 600 years**
+- ⚡ Daily fun fact: **If you have three quarters, four dimes, and four pennies, you have $1.19. You also have the largest amount of money in coins without being able to make change for a dollar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
