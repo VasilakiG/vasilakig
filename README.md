@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In August 1999, Lori Lynn Lomeli set a record by spinning 82 Hula Hoops at the same time for three full revolutions**
+- ⚡ Daily fun fact: **Common pesticides such as roach, termite and flea insecticide can be found in the bodies of majority of Americans**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
