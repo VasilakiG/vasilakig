@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Common pesticides such as roach, termite and flea insecticide can be found in the bodies of majority of Americans**
+- ⚡ Daily fun fact: **The first episode of the popular television sitcom Happy Days was titled "All The Way."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
