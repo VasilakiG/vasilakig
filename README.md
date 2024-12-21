@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first episode of the popular television sitcom Happy Days was titled "All The Way."**
+- ⚡ Daily fun fact: **Walmart-mart sells more apparel a year than all the other competing department stores combined**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
