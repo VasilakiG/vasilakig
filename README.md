@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Seventy-one percent of households report they have at least one snorer. Forty-five percent of those surveyed admit they snore, 35% said their partner snores, 12% said their child snores and 9% reported their pet snores**
+- ⚡ Daily fun fact: **One pound of maple syrup can make eight pounds of candy or sugar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
