@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One pound of maple syrup can make eight pounds of candy or sugar**
+- ⚡ Daily fun fact: **Colour is not an indicator for the taste or ripeness in cranberries**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
