@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In Ivrea, Italy, thousands of citizens celebrate the beginning of Lent by throwing oranges at one another**
+- ⚡ Daily fun fact: **Annually 7 million tons of textiles and clothing is thrown out. Out of this, only 12% is used again or recycled**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
