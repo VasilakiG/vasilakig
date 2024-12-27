@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Annually 7 million tons of textiles and clothing is thrown out. Out of this, only 12% is used again or recycled**
+- ⚡ Daily fun fact: **Most heart attacks occur between the hours of 8 and 9 am**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
