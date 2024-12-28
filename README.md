@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Most heart attacks occur between the hours of 8 and 9 am**
+- ⚡ Daily fun fact: **Nazi leader Adolf Hitler had only one testicle**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
