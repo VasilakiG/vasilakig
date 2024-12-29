@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Nazi leader Adolf Hitler had only one testicle**
+- ⚡ Daily fun fact: **The smoke that is produced by a fire kills more people than a burn does because of carbon monoxide and other dangerous gases**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
