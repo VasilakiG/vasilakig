@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Polar bears are left handed**
+- ⚡ Daily fun fact: **Before the 17th century, carrots used to be the colour purple**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
