@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before the 17th century, carrots used to be the colour purple**
+- ⚡ Daily fun fact: **In ancient Rome, it was considered a sign of leadership to be born with a crooked nose**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
