@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
+- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
