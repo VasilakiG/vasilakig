@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
+- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
