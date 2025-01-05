@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
+- ⚡ Daily fun fact: **The three best-known western names in China: Jesus Christ, Richard	Nixon, and Elvis Presley**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
