@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The three best-known western names in China: Jesus Christ, Richard	Nixon, and Elvis Presley**
+- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
