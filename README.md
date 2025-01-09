@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The "naked recreation and travel" industry has grown by 233% in the past decade**
+- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
