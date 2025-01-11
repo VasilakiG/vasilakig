@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
+- ⚡ Daily fun fact: **44% of kids watch television before they go to sleep**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
