@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **44% of kids watch television before they go to sleep**
+- ⚡ Daily fun fact: **A meteor has only destroyed one satellite, which was the European Space Agency's Olympus in 1993.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
