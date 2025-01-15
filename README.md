@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
+- ⚡ Daily fun fact: **In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
