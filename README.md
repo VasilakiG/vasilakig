@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **For more than 3,000 years, Carpenter ants have been used to close wounds in India, Asia and South America**
+- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
