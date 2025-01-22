@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The cross bow was invented by the Chinese and records of its usage goes back to as far as the Three Kingdom Period (220 a.d.-280 a.d.).**
+- ⚡ Daily fun fact: **The expression cooked "al dente" means "to the tooth." What this means is that the pasta should be somewhat firm, and offer some resistance to the tooth, but should also be tender**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
