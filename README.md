@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **China has more English speakers than the United States**
+- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
