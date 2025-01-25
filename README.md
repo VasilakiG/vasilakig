@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
+- ⚡ Daily fun fact: **Chinese Crested dogs can get acne**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
