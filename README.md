@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
+- ⚡ Daily fun fact: **Men in their early twenties shave an average of four times a week**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
