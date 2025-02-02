@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Men in their early twenties shave an average of four times a week**
+- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
