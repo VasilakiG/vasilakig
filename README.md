@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Not all polar bears hibernate; only pregnant females polar bears do**
+- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
