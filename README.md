@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Not all polar bears hibernate; only pregnant females polar bears do**
+- ⚡ Daily fun fact: **One-third pound stalk of broccoli contains more vitamin C than 204 apples**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
