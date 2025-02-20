@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
+- ⚡ Daily fun fact: **Herbert Hoover, who was the 31st president of the United Stated, turned over all the Federal salary checks he received to charity during the 47 years he was in government**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
