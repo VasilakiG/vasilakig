@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Each year there are approximately 20 billion coconuts produced worldwide**
+- ⚡ Daily fun fact: **The name Wendy was made up for the book "Peter Pan."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
