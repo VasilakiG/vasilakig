@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Macadamia nuts are not sold in their shells because it takes 300 pounds per square inch of pressure to break the shell**
+- ⚡ Daily fun fact: **No piece of paper can be folded in half more than 7 times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
