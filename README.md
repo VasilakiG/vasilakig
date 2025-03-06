@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pucks hit by hockey sticks have reached speeds of up to 150 miles per hour**
+- ⚡ Daily fun fact: **Five thousandths of a millimeter is the tolerance of accuracy at the LEGO mould factories**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
