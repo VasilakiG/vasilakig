@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Five thousandths of a millimeter is the tolerance of accuracy at the LEGO mould factories**
+- ⚡ Daily fun fact: **In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
