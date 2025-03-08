@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money**
+- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
