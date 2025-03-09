@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
+- ⚡ Daily fun fact: **The three best-known western names in China: Jesus Christ, Richard	Nixon, and Elvis Presley**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
