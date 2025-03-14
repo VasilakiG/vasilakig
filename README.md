@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
+- ⚡ Daily fun fact: **It would take about fourteen and half million notes of currency to build a mile high stack**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
