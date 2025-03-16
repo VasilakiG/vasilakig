@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Flintstones cartoon was the first thirty-minute cartoon to be aired during prime time**
+- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
