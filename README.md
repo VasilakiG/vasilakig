@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Ancient Greek women made a type of cheek blush by painting their cheeks with herbal pastes which was made out of crushed berries and seeds**
+- ⚡ Daily fun fact: **Superman The Escape rollercoaster, located in California at Six Flags Magic Mountain, goes from 0 to 100 miles per hour in only 7 seconds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
