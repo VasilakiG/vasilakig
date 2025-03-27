@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
+- ⚡ Daily fun fact: **Throughout the South, peanuts were known as "Monkey Nuts," and "Goober peas," before the civil war**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
