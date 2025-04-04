@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
+- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
