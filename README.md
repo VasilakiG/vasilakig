@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
+- ⚡ Daily fun fact: **The Kodiak, which is native to Alaska, is the largest bear and can measure up to eight feet and weigh as much as 1,700 pounds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
