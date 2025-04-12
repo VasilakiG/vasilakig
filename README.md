@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 40% of the U.S. paper currency in circulation was counterfeit by the end of the Civil War**
+- ⚡ Daily fun fact: **In 1865, the U.S. Secret Service was first established for the specific purpose to combat the counterfeiting of money**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
