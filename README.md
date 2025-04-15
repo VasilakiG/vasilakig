@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The expression cooked "al dente" means "to the tooth." What this means is that the pasta should be somewhat firm, and offer some resistance to the tooth, but should also be tender**
+- ⚡ Daily fun fact: **Pucks hit by hockey sticks have reached speeds of up to 150 miles per hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
