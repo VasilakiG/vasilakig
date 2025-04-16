@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pucks hit by hockey sticks have reached speeds of up to 150 miles per hour**
+- ⚡ Daily fun fact: **2.5 cans of Spam are consumed every second in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
