@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Humans are born with 300 bones in their body, however when a person reaches adulthood they only have 206 bones. This occurs because many of them join together to make a single bone**
+- ⚡ Daily fun fact: **The only South East Asian country that has never been colonized by a Western Power is Thailand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
