@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Humans are born with 300 bones in their body, however when a person reaches adulthood they only have 206 bones. This occurs because many of them join together to make a single bone**
+- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
