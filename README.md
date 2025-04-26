@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
+- ⚡ Daily fun fact: **Serving ice cream on cherry pie was once illegal in Kansas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
