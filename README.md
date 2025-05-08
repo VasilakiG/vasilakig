@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
+- ⚡ Daily fun fact: **The first couple to be shown on a sitcom sleeping in the same bed was "Mary Kay and Johnny."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
