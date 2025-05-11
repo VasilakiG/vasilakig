@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
+- ⚡ Daily fun fact: **The two factories of the Jelly Belly Candy Company produces approximately 100,000 pounds of jelly beans a day. this amounts to about 1,250,000 jelly beans an hour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
