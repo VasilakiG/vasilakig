@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The word "toy" comes from an old English word that means "tool."**
+- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
