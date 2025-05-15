@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
+- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
