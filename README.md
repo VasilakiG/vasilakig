@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
+- ⚡ Daily fun fact: **No piece of paper can be folded in half more than 7 times**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
