@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before air conditioning was invented, white cotton slipcovers were put on furniture to keep the air cool.**
+- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
