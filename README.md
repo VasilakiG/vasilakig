@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
+- ⚡ Daily fun fact: **The hydra, which is related to the jellyfish, can grow its body back in a couple of days if it is cut in half**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
