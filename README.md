@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
+- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
