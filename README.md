@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
+- ⚡ Daily fun fact: **It would take about fourteen and half million notes of currency to build a mile high stack**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
