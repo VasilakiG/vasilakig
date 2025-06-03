@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The fear of peanut butter sticking to the roof of the mouth is called Arachibutyrophobia**
+- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
