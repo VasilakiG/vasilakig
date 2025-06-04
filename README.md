@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
+- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
