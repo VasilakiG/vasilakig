@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
+- ⚡ Daily fun fact: **The Flintstones cartoon was the first thirty-minute cartoon to be aired during prime time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
