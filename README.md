@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It is estimated that by the end of 2000, there has been 142,600 tonnes of gold mined in the world**
+- ⚡ Daily fun fact: **The fur of the binturong, also known as the "Asian Bear Cat," smells like popcorn. The scent is believed to come from a gland located near the tail**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
