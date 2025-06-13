@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The sentence "the quick brown fox jumps over the lazy dog" uses every letter in the english language**
+- ⚡ Daily fun fact: **Throughout the South, peanuts were known as "Monkey Nuts," and "Goober peas," before the civil war**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
