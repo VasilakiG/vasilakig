@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Throughout the South, peanuts were known as "Monkey Nuts," and "Goober peas," before the civil war**
+- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
