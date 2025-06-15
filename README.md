@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
+- ⚡ Daily fun fact: **Of married couples, 70% of men and 60% of women have cheated on their spouse**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
