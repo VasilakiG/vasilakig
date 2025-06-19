@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1631, two London bible printers accidentally left the word "not" out of the seventh commandment, which then read, "Thou shalt commit adultery." This legendary book is now known as the "Wicked Bible."**
+- ⚡ Daily fun fact: **There are six million parts in the Boeing 747-400.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
