@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **44% of kids watch television before they go to sleep**
+- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
