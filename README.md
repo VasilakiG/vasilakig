@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Planters Peanut Company mascot, Mr. Peanut, was created during a contest for schoolchildren in 1916**
+- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
