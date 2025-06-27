@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
+- ⚡ Daily fun fact: **In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
