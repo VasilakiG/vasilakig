@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year**
+- ⚡ Daily fun fact: **The only South East Asian country that has never been colonized by a Western Power is Thailand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
