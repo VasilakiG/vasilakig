@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **2.5 cans of Spam are consumed every second in the United States**
+- ⚡ Daily fun fact: **Chinese Crested dogs can get acne**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
