@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Five thousandths of a millimeter is the tolerance of accuracy at the LEGO mould factories**
+- ⚡ Daily fun fact: **The only South East Asian country that has never been colonized by a Western Power is Thailand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
