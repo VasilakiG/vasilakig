@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There is a restaurant in Stockholm that only offers all-garlic products. They even have a garlic cheesecake**
+- ⚡ Daily fun fact: **The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
