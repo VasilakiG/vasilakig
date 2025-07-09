@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres**
+- ⚡ Daily fun fact: **Each year there are approximately 20 billion coconuts produced worldwide**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
