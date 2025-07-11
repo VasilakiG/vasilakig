@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
+- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
