@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A monkey was once tried and convicted for smoking a cigarette in South Bend, Indiana**
+- ⚡ Daily fun fact: **Japanese research has concluded that moderate drinking can boost IQ levels**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
