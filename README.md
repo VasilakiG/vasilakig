@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
+- ⚡ Daily fun fact: **In 1873, Colgate made a toothpaste that was available in a jar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
