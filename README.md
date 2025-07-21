@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1810, Peter Durand invented the tin can for preserving food**
+- ⚡ Daily fun fact: **The fear of peanut butter sticking to the roof of the mouth is called Arachibutyrophobia**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
