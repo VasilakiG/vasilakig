@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The fear of peanut butter sticking to the roof of the mouth is called Arachibutyrophobia**
+- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
