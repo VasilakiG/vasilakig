@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
+- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
