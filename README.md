@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
+- ⚡ Daily fun fact: **In 2002, the most popular boat name in the U.S. was Liberty**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
