@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 2002, the most popular boat name in the U.S. was Liberty**
+- ⚡ Daily fun fact: **It costs about 3 cents to make a $1 bill in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
