@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Koala bear is not really a bear, but is really related to the kangaroo and the wombat.**
+- ⚡ Daily fun fact: **Cinderella is known as Rashin Coatie in Scotland, Zezolla in Italy, and Yeh-hsien in China**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
