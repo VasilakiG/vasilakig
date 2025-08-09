@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Dipsomania refers to an insatiable craving for alcoholic beverages**
+- ⚡ Daily fun fact: **The cross bow was invented by the Chinese and records of its usage goes back to as far as the Three Kingdom Period (220 a.d.-280 a.d.).**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
