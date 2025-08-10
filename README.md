@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The cross bow was invented by the Chinese and records of its usage goes back to as far as the Three Kingdom Period (220 a.d.-280 a.d.).**
+- ⚡ Daily fun fact: **A chicken with red earlobes will produce brown eggs, and a chicken with white earlobes will produce white eggs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
