@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A chicken with red earlobes will produce brown eggs, and a chicken with white earlobes will produce white eggs**
+- ⚡ Daily fun fact: **Japanese research has concluded that moderate drinking can boost IQ levels**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
