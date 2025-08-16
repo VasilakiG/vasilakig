@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
+- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
