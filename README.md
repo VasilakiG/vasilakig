@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
+- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
