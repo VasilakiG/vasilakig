@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
+- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
