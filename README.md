@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Colour is not an indicator for the taste or ripeness in cranberries**
+- ⚡ Daily fun fact: **In 1873, Colgate made a toothpaste that was available in a jar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
