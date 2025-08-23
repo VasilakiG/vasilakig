@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1873, Colgate made a toothpaste that was available in a jar**
+- ⚡ Daily fun fact: **Japanese research has concluded that moderate drinking can boost IQ levels**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
