@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The hydra, which is related to the jellyfish, can grow its body back in a couple of days if it is cut in half**
+- ⚡ Daily fun fact: **Japanese research has concluded that moderate drinking can boost IQ levels**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
