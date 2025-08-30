@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Not all polar bears hibernate; only pregnant females polar bears do**
+- ⚡ Daily fun fact: **Approximately 40% of the U.S. paper currency in circulation was counterfeit by the end of the Civil War**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
