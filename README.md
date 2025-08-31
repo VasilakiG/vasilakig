@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Approximately 40% of the U.S. paper currency in circulation was counterfeit by the end of the Civil War**
+- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
