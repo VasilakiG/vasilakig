@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
+- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
