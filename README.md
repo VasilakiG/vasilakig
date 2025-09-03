@@ -22,7 +22,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1836, Mexican General Santa Anna held an elaborate state funeral for his amputated leg. updated**
+- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
