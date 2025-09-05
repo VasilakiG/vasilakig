@@ -4,21 +4,25 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Learning **Rust, mDNS, C++, GameDev(C#, Unity)**
+- 🌱 Currently learning: **Color Science(Colorimetry), Dioxus, Mobile Dev, Rust, mDNS, advanced modern C++**
   
-- ⚒️ Worked on:<br>
-      - https://python.mk/ (my own python learning platform for elementary school students)<br>
-      - https://summer23.best.org.mk/ (website for the 2023 Best Summer Course in Skopje)<br>
-      - https://github.com/42dotmk/robot4e (Robotic Arm)<br>
-      - https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk (https://eestec.mk/)<br>
-- ⚒️ Working on:<br>
-      - Base42's Embedded Framework (upcoming)<br>
-      - https://github.com/42dotmk/StormWing (DIY drone) <br>
-      - my own upcoming game<br>
-      - https://github.com/42dotmk/colosseum (Competitive programming events organizing platform)<br>
+- ⚒️ Work**ED** on:<br>
+      - [python.mk](https://python.mk/) (my own python learning platform for elementary school students)<br>
+      - [summer23.best.org.mk](https://summer23.best.org.mk/) (website for the 2023 Best Summer Course in Skopje)<br>
+      - [eestec.mk](https://eestec.mk/) (Github repositories - https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk)<br>
+      - Open source projects on GitHub<br>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [mDNS](https://github.com/mjansson/mdns) (Public domain mDNS/DNS-SD library in C)<br>
+      - Open source projects @ [base42](https://github.com/42dotmk)<br>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Colloseum](https://github.com/42dotmk/colosseum) (Competitive programming events organizing platform)<br>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- Robotic Arm project @ [base42](https://github.com/42dotmk)<br>
+- ⚒️ Work**ING** on:<br>
+      - [FEiN](https://github.com/VasilakiG/FEiN/) (Mobile application for personal finance tracking)<br>
+      - [sparq](https://github.com/42dotmk/sparq) (Upcoming base42 Embedded Framework)<br>
+      - [StormWing](https://github.com/42dotmk/StormWing) (DIY drone from scratch, firmware, software and hardware) <br>
+      - Finishing GlobalGameJam games ([Skibidi Toilet](https://globalgamejam.org/games/2024/skibiditoilet-9) & [Bubbles' Adventures](https://globalgamejam.org/games/2025/bubbles-adventures-2))<br>
       - some upcoming web platforms<br>
 
-- 👨‍💻 You can read more about me at https://vasilaki.mk/
+- 👨‍💻 You can read more about me at [vasilaki.mk](https://vasilaki.mk/)
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
