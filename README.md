@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
+- ⚡ Daily fun fact: **The word "comet" comes from the Greek word "kometes" meaning long hair and referring to the tail**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
