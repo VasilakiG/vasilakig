@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
+- ⚡ Daily fun fact: **China has more English speakers than the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
