@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cinderella is known as Rashin Coatie in Scotland, Zezolla in Italy, and Yeh-hsien in China**
+- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
