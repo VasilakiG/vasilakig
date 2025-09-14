@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
+- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
