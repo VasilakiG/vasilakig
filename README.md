@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
+- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
