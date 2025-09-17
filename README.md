@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It takes the Hubble telescope about 97 minutes to complete an orbit of the Earth. On average, the Hubble uses the equivilent amount of energy as 30 household light bulbs to complete an orbit.**
+- ⚡ Daily fun fact: **A monkey was once tried and convicted for smoking a cigarette in South Bend, Indiana**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
