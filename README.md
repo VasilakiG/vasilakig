@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A monkey was once tried and convicted for smoking a cigarette in South Bend, Indiana**
+- ⚡ Daily fun fact: **Five thousandths of a millimeter is the tolerance of accuracy at the LEGO mould factories**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
