@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1631, two London bible printers accidentally left the word "not" out of the seventh commandment, which then read, "Thou shalt commit adultery." This legendary book is now known as the "Wicked Bible."**
+- ⚡ Daily fun fact: **In 1894 the first big Coke sign was found on the side of a building located in Cartersville, Georgia, and still exists today**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
