@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **It costs about 3 cents to make a $1 bill in the United States**
+- ⚡ Daily fun fact: **The sentence "the quick brown fox jumps over the lazy dog" uses every letter in the english language**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
