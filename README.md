@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The fear of peanut butter sticking to the roof of the mouth is called Arachibutyrophobia**
+- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
