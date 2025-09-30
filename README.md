@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
+- ⚡ Daily fun fact: **Elizabeth Taylor has appeared on the cover of Life magazine more than anyone else**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
