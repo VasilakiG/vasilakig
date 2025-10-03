@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
+- ⚡ Daily fun fact: **The average price for a major league baseball game in 2004 is $19.82**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
