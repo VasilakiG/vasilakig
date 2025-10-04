@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The average price for a major league baseball game in 2004 is $19.82**
+- ⚡ Daily fun fact: **Smokers are twice as likely to develop lower back pain than non-smokers**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
