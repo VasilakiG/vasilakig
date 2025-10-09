@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1836, Mexican General Santa Anna held an elaborate state funeral for his amputated leg. updated**
+- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
