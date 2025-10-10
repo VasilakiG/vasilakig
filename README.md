@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
+- ⚡ Daily fun fact: **The expression cooked "al dente" means "to the tooth." What this means is that the pasta should be somewhat firm, and offer some resistance to the tooth, but should also be tender**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
