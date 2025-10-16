@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
+- ⚡ Daily fun fact: **A meteor has only destroyed one satellite, which was the European Space Agency's Olympus in 1993.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
