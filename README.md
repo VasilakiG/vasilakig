@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A meteor has only destroyed one satellite, which was the European Space Agency's Olympus in 1993.**
+- ⚡ Daily fun fact: **Baskin Robbins plain vanilla ice cream is the number one selling flavour and accounts for a quarter of their sales**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
