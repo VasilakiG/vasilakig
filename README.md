@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Before air conditioning was invented, white cotton slipcovers were put on furniture to keep the air cool.**
+- ⚡ Daily fun fact: **The "naked recreation and travel" industry has grown by 233% in the past decade**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
