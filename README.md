@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
+- ⚡ Daily fun fact: **Smokers are twice as likely to develop lower back pain than non-smokers**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
