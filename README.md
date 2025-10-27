@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
+- ⚡ Daily fun fact: **Superman The Escape rollercoaster, located in California at Six Flags Magic Mountain, goes from 0 to 100 miles per hour in only 7 seconds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
