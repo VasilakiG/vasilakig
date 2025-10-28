@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Superman The Escape rollercoaster, located in California at Six Flags Magic Mountain, goes from 0 to 100 miles per hour in only 7 seconds**
+- ⚡ Daily fun fact: **Chinese Crested dogs can get acne**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
