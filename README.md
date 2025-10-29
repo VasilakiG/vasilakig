@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Chinese Crested dogs can get acne**
+- ⚡ Daily fun fact: **Macadamia nuts are not sold in their shells because it takes 300 pounds per square inch of pressure to break the shell**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
