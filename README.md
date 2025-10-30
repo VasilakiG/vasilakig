@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Macadamia nuts are not sold in their shells because it takes 300 pounds per square inch of pressure to break the shell**
+- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
