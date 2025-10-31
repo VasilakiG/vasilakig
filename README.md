@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
+- ⚡ Daily fun fact: **In 1960 there were 16,067 gambling slots in Nevada. By 1999, this number rose to 205,726 slots which would be one slot for every 10 people residing there**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
