@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
+- ⚡ Daily fun fact: **The fur of the binturong, also known as the "Asian Bear Cat," smells like popcorn. The scent is believed to come from a gland located near the tail**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
