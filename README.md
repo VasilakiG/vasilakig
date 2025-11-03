@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The fur of the binturong, also known as the "Asian Bear Cat," smells like popcorn. The scent is believed to come from a gland located near the tail**
+- ⚡ Daily fun fact: **Paul Hunn holds the record for the loudest burp, which was 118.1 decibels, which is as loud as a chainsaw**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
