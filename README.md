@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
+- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
