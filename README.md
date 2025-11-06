@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Scallops have approximately 100 eyes around the edge of its shell**
+- ⚡ Daily fun fact: **The reason why hair turns gray as we age is because the pigment cells in the hair follicle start to die, which is responsible for producing "melanin" which gives the hair colour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
