@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **44% of kids watch television before they go to sleep**
+- ⚡ Daily fun fact: **There is a restaurant in Stockholm that only offers all-garlic products. They even have a garlic cheesecake**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
