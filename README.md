@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **There is a restaurant in Stockholm that only offers all-garlic products. They even have a garlic cheesecake**
+- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
