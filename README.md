@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1836, Mexican General Santa Anna held an elaborate state funeral for his amputated leg. updated**
+- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
