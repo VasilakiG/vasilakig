@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
+- ⚡ Daily fun fact: **Baskin Robbins plain vanilla ice cream is the number one selling flavour and accounts for a quarter of their sales**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
