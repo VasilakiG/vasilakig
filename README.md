@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Baskin Robbins plain vanilla ice cream is the number one selling flavour and accounts for a quarter of their sales**
+- ⚡ Daily fun fact: **For more than 3,000 years, Carpenter ants have been used to close wounds in India, Asia and South America**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
