@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1873, Colgate made a toothpaste that was available in a jar**
+- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
