@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1836, Mexican General Santa Anna held an elaborate state funeral for his amputated leg. updated**
+- ⚡ Daily fun fact: **In 1810, Peter Durand invented the tin can for preserving food**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
