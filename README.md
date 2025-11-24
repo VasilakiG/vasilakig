@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Smokers are twice as likely to develop lower back pain than non-smokers**
+- ⚡ Daily fun fact: **2.5 cans of Spam are consumed every second in the United States**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
