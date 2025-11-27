@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The name Wendy was made up for the book "Peter Pan."**
+- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
