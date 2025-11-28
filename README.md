@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
+- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
