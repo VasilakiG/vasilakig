@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Gastric Flu can cause projectile vomiting**
+- ⚡ Daily fun fact: **Paul Hunn holds the record for the loudest burp, which was 118.1 decibels, which is as loud as a chainsaw**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
