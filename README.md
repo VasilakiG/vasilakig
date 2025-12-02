@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Cinderella is known as Rashin Coatie in Scotland, Zezolla in Italy, and Yeh-hsien in China**
+- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
