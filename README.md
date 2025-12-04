@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Serving ice cream on cherry pie was once illegal in Kansas**
+- ⚡ Daily fun fact: **The Great Pyramids used to be as white as snow because they were encased in a bright limestone that has worn off over the years**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
