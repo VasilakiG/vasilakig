@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One gallon of pure maple syrup weighs 11 pounds**
+- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
