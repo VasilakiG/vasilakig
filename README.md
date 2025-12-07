@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
+- ⚡ Daily fun fact: **The name Wendy was made up for the book "Peter Pan."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
