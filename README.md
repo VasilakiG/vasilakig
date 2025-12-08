@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The name Wendy was made up for the book "Peter Pan."**
+- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
