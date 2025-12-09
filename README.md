@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
+- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
