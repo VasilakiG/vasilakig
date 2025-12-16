@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The Tonle Sap River in Cambodia flows north for almost half the year and then south for the rest of the year**
+- ⚡ Daily fun fact: **Of married couples, 70% of men and 60% of women have cheated on their spouse**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
