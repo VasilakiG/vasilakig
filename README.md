@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Of married couples, 70% of men and 60% of women have cheated on their spouse**
+- ⚡ Daily fun fact: **Five thousandths of a millimeter is the tolerance of accuracy at the LEGO mould factories**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
