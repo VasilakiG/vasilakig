@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
+- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
