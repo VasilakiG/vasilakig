@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Pitcher Darold Knowles once pitched all seven games of one World Series**
+- ⚡ Daily fun fact: **Most lipstick contains fish scales**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
