@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
+- ⚡ Daily fun fact: **The Flintstones cartoon was the first thirty-minute cartoon to be aired during prime time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
