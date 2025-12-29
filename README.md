@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Serving ice cream on cherry pie was once illegal in Kansas**
+- ⚡ Daily fun fact: **There are six million parts in the Boeing 747-400.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
