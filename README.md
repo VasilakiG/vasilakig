@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **A monkey was once tried and convicted for smoking a cigarette in South Bend, Indiana**
+- ⚡ Daily fun fact: **One-third pound stalk of broccoli contains more vitamin C than 204 apples**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
