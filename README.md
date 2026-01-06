@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **One-third pound stalk of broccoli contains more vitamin C than 204 apples**
+- ⚡ Daily fun fact: **The Kodiak, which is native to Alaska, is the largest bear and can measure up to eight feet and weigh as much as 1,700 pounds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
