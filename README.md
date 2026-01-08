@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres**
+- ⚡ Daily fun fact: **Not all polar bears hibernate; only pregnant females polar bears do**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
