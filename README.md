@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Not all polar bears hibernate; only pregnant females polar bears do**
+- ⚡ Daily fun fact: **The Tonle Sap River in Cambodia flows north for almost half the year and then south for the rest of the year**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
