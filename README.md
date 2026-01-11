@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **No piece of paper can be folded in half more than 7 times**
+- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
