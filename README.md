@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **Herbert Hoover, who was the 31st president of the United Stated, turned over all the Federal salary checks he received to charity during the 47 years he was in government**
+- ⚡ Daily fun fact: **The first couple to be shown on a sitcom sleeping in the same bed was "Mary Kay and Johnny."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
