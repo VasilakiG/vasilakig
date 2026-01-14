@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **The first couple to be shown on a sitcom sleeping in the same bed was "Mary Kay and Johnny."**
+- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
