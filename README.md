@@ -27,7 +27,7 @@
 
 - 📫 Mail me at **vasilakigorgi@yahoo.com**
 
-- ⚡ Daily fun fact: **NASCAR stands for National Association for Stock Car Auto Racing**
+- ⚡ Daily fun fact: **It is estimated that by the end of 2000, there has been 142,600 tonnes of gold mined in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
