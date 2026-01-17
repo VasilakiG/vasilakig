@@ -4,7 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Currently learning: **Implementing my own Kafka from scratch, Color Science(Colorimetry), Dioxus, Mobile Dev, Rust, mDNS, advanced modern C++**
+- 🌱 Currently learning: **NextJS App Router, making a full-stack app with main focus on the database design, implementing my own Kafka from scratch, Color Science(Colorimetry), mDNS, advanced modern C++**
   
 - ⚒️ Work**ED** on:<br>
       - [python.mk](https://python.mk/) (my own python learning platform for elementary school students)<br>
@@ -16,16 +16,15 @@
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Colloseum](https://github.com/42dotmk/colosseum) (Competitive programming events organizing platform)<br>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- Robotic Arm project @ [base42](https://github.com/42dotmk)<br>
 - ⚒️ Work**ING** on:<br>
-      - [build-my-own-kafka](https://github.com/VasilakiG/build-my-own-kafka) (Building Kafka from scratch in C++)<br>
       - [FEiN](https://github.com/VasilakiG/FEiN/) (Mobile application for personal finance tracking)<br>
       - [sparq](https://github.com/42dotmk/sparq) (Upcoming base42 Embedded Framework)<br>
       - [StormWing](https://github.com/42dotmk/StormWing) (DIY drone from scratch, firmware, software and hardware) <br>
+      - [build-my-own-kafka](https://github.com/VasilakiG/build-my-own-kafka) (Building Kafka from scratch in C++)<br>
       - Finishing GlobalGameJam games ([Skibidi Toilet](https://globalgamejam.org/games/2024/skibiditoilet-9) & [Bubbles' Adventures](https://globalgamejam.org/games/2025/bubbles-adventures-2))<br>
-      - some upcoming web platforms<br>
 
 - 👨‍💻 You can read more about me at [vasilaki.mk](https://vasilaki.mk/)
 
-- 📫 Mail me at **vasilakigorgi@yahoo.com**
+- 📫 Mail me at **vasilaki@totsili.com**
 
 - ⚡ Daily fun fact: **The second best selling game of all time is Jenga. Jenga is a Swahili word, meaning "to build."**
 
