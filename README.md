@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
+- ⚡ Daily fun fact: **Dipsomania refers to an insatiable craving for alcoholic beverages**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
