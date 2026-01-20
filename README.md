@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Dipsomania refers to an insatiable craving for alcoholic beverages**
+- ⚡ Daily fun fact: **In 2002, the most popular boat name in the U.S. was Liberty**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
