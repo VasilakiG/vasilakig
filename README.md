@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **In 2002, the most popular boat name in the U.S. was Liberty**
+- ⚡ Daily fun fact: **The Planters Peanut Company mascot, Mr. Peanut, was created during a contest for schoolchildren in 1916**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
