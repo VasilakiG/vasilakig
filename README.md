@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The Planters Peanut Company mascot, Mr. Peanut, was created during a contest for schoolchildren in 1916**
+- ⚡ Daily fun fact: **The Kodiak, which is native to Alaska, is the largest bear and can measure up to eight feet and weigh as much as 1,700 pounds**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
