@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **In 1810, Peter Durand invented the tin can for preserving food**
+- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
