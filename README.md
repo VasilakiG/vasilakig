@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **A one ounce milk chocolate bar has 6 mg of caffeine**
+- ⚡ Daily fun fact: **The fear of peanut butter sticking to the roof of the mouth is called Arachibutyrophobia**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
