@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Baskin Robbins plain vanilla ice cream is the number one selling flavour and accounts for a quarter of their sales**
+- ⚡ Daily fun fact: **Men in their early twenties shave an average of four times a week**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
