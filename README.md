@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **In 1967, the IMAX film system was invented by Canadian Ivan Grame Ferguson to premier at Expo 67.**
+- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
