@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The first TONKA truck was made in 1947**
+- ⚡ Daily fun fact: **Every three days a human stomach gets a new lining**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
