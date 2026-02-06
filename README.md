@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Men in their early twenties shave an average of four times a week**
+- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
