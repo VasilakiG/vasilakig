@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
+- ⚡ Daily fun fact: **The Planters Peanut Company mascot, Mr. Peanut, was created during a contest for schoolchildren in 1916**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
