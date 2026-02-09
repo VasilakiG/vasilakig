@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Istanbul, Turkey is the only city in the world located on two continents**
+- ⚡ Daily fun fact: **44% of kids watch television before they go to sleep**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
