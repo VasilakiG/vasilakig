@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The average price for a major league baseball game in 2004 is $19.82**
+- ⚡ Daily fun fact: **Percentage of American men who say they would marry the same woman if they had it to do all over again: 80%**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
