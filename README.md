@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Percentage of American men who say they would marry the same woman if they had it to do all over again: 80%**
+- ⚡ Daily fun fact: **Approximately 40% of the U.S. paper currency in circulation was counterfeit by the end of the Civil War**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
