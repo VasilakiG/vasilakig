@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The cross bow was invented by the Chinese and records of its usage goes back to as far as the Three Kingdom Period (220 a.d.-280 a.d.).**
+- ⚡ Daily fun fact: **The two factories of the Jelly Belly Candy Company produces approximately 100,000 pounds of jelly beans a day. this amounts to about 1,250,000 jelly beans an hour**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
