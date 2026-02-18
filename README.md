@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Men in their early twenties shave an average of four times a week**
+- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
