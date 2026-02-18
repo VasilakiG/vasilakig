@@ -14,13 +14,13 @@
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [mDNS](https://github.com/mjansson/mdns) (Public domain mDNS/DNS-SD library in C)<br>
       - Open source projects @ [base42](https://github.com/42dotmk)<br>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Colloseum](https://github.com/42dotmk/colosseum) (Competitive programming events organizing platform)<br>
-      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- Robotic Arm project @ [base42](https://github.com/42dotmk)<br>
+      
 - ⚒️ Work**ING** on:<br>
       - [FEiN](https://github.com/VasilakiG/FEiN/) (Mobile application for personal finance tracking)<br>
       - [sparq](https://github.com/42dotmk/sparq) (Upcoming base42 Embedded Framework)<br>
       - [StormWing](https://github.com/42dotmk/StormWing) (DIY drone from scratch, firmware, software and hardware) <br>
       - [build-my-own-kafka](https://github.com/VasilakiG/build-my-own-kafka) (Building Kafka from scratch in C++)<br>
-      - Finishing GlobalGameJam games ([Skibidi Toilet](https://globalgamejam.org/games/2024/skibiditoilet-9) & [Bubbles' Adventures](https://globalgamejam.org/games/2025/bubbles-adventures-2))<br>
+      - Finishing GlobalGameJam games ([Skibidi Toilet](https://globalgamejam.org/games/2024/skibiditoilet-9), [Bubbles' Adventures](https://globalgamejam.org/games/2025/bubbles-adventures-2) & [Masquerade: Exorcist](https://globalgamejam.org/games/2026/masquerade-exorcist-7))<br>
 
 - 👨‍💻 You can read more about me at [vasilaki.mk](https://vasilaki.mk/)
 
