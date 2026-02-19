@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The longest distance a deepwater lobster has been recorded to travel is 225 miles**
+- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
