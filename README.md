@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
+- ⚡ Daily fun fact: **The Flintstones cartoon was the first thirty-minute cartoon to be aired during prime time**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
