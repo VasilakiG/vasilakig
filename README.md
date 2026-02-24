@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **It takes the Hubble telescope about 97 minutes to complete an orbit of the Earth. On average, the Hubble uses the equivilent amount of energy as 30 household light bulbs to complete an orbit.**
+- ⚡ Daily fun fact: **The three best-known western names in China: Jesus Christ, Richard	Nixon, and Elvis Presley**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
