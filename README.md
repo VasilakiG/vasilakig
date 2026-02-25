@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The three best-known western names in China: Jesus Christ, Richard	Nixon, and Elvis Presley**
+- ⚡ Daily fun fact: **Colgate faced a big obstacle marketing toothpaste in Spanish speaking countries. Colgate translates into the command "go hang yourself."**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
