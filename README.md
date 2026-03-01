@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Native Indians have been known to paint their doors blue, which they believe keeps the bad spirits out**
+- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
