@@ -1,10 +1,10 @@
 <h1 align="center">Hello World, I'm Vasilaki Totsili</h1>
-<h3 align="center">Software engineering student based out of Skopje</h3>
+<h3 align="center">Embedded Software Engineer based in Skopje</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
 
 
-- 🌱 Currently learning: **NextJS App Router, making a full-stack app with main focus on the database design, implementing my own Kafka from scratch, Color Science(Colorimetry), mDNS, advanced modern C++**
+- 🌱 Currently learning: **Cybersecurity, server administration, making a full-stack app with main focus on the database design**
   
 - ⚒️ Work**ED** on:<br>
       - [python.mk](https://python.mk/) (my own python learning platform for elementary school students)<br>
