@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The average price for a major league baseball game in 2004 is $19.82**
+- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
