@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
+- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
