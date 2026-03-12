@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Asthma affects one in fifteen children under the age of eighteen**
+- ⚡ Daily fun fact: **2.5 cans of Spam are consumed every second in the United States**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
