@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Paul Hunn holds the record for the loudest burp, which was 118.1 decibels, which is as loud as a chainsaw**
+- ⚡ Daily fun fact: **Instead of a Birthday Cake, many Russian children are given a Birthday Pie**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
