@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The reason why hair turns gray as we age is because the pigment cells in the hair follicle start to die, which is responsible for producing "melanin" which gives the hair colour**
+- ⚡ Daily fun fact: **The Ancient Greek women made a type of cheek blush by painting their cheeks with herbal pastes which was made out of crushed berries and seeds**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
