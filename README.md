@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The Ancient Greek women made a type of cheek blush by painting their cheeks with herbal pastes which was made out of crushed berries and seeds**
+- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
