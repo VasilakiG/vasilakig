@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
+- ⚡ Daily fun fact: **Pucks hit by hockey sticks have reached speeds of up to 150 miles per hour**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
