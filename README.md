@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Pucks hit by hockey sticks have reached speeds of up to 150 miles per hour**
+- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
