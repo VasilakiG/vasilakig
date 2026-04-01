@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Humans are born with 300 bones in their body, however when a person reaches adulthood they only have 206 bones. This occurs because many of them join together to make a single bone**
+- ⚡ Daily fun fact: **The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
