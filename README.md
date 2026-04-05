@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Chinese Crested dogs can get acne**
+- ⚡ Daily fun fact: **One out of 20 people have an extra rib**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
