@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The Planters Peanut Company mascot, Mr. Peanut, was created during a contest for schoolchildren in 1916**
+- ⚡ Daily fun fact: **Colgate faced a big obstacle marketing toothpaste in Spanish speaking countries. Colgate translates into the command "go hang yourself."**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
