@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Colgate faced a big obstacle marketing toothpaste in Spanish speaking countries. Colgate translates into the command "go hang yourself."**
+- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
