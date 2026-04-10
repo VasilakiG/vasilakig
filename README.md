@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
+- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
