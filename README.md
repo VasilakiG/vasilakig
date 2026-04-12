@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
+- ⚡ Daily fun fact: **The Flintstones cartoon was the first thirty-minute cartoon to be aired during prime time**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
