@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The Koala bear is not really a bear, but is really related to the kangaroo and the wombat.**
+- ⚡ Daily fun fact: **In 1894 the first big Coke sign was found on the side of a building located in Cartersville, Georgia, and still exists today**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
