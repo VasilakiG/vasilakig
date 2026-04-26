@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The hydra, which is related to the jellyfish, can grow its body back in a couple of days if it is cut in half**
+- ⚡ Daily fun fact: **Each year there are approximately 20 billion coconuts produced worldwide**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
