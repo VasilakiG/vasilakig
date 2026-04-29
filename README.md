@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
+- ⚡ Daily fun fact: **Dipsomania refers to an insatiable craving for alcoholic beverages**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
