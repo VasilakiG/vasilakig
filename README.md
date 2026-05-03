@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Cinderella is known as Rashin Coatie in Scotland, Zezolla in Italy, and Yeh-hsien in China**
+- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
