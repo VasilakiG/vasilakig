@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Japan has approximately 200 volcanoes and is home to 10% of the active volcanoes in the world**
+- ⚡ Daily fun fact: **In a day, kids in the U.S. that are between the ages of 2 - 8 spend 28 minutes of their time coloring**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
