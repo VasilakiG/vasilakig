@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **In a day, kids in the U.S. that are between the ages of 2 - 8 spend 28 minutes of their time coloring**
+- ⚡ Daily fun fact: **The word "comet" comes from the Greek word "kometes" meaning long hair and referring to the tail**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
