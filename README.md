@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The word "comet" comes from the Greek word "kometes" meaning long hair and referring to the tail**
+- ⚡ Daily fun fact: **Most lipstick contains fish scales**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
