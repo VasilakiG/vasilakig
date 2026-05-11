@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **More people are killed by donkeys annually than are killed in plane crashes**
+- ⚡ Daily fun fact: **In 2002, the most popular boat name in the U.S. was Liberty**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
