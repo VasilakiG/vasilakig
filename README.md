@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Japanese research has concluded that moderate drinking can boost IQ levels**
+- ⚡ Daily fun fact: **Each year there are approximately 20 billion coconuts produced worldwide**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
