@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Each year there are approximately 20 billion coconuts produced worldwide**
+- ⚡ Daily fun fact: **In the U.S., over one million gallons of cosmetics, drinks, and lotions are sold that contain aloe in them per year**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
