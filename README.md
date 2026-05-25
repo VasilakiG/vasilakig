@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Mars is the home of Olympus Mons, the largest known volcano in our solar system**
+- ⚡ Daily fun fact: **Paul Hunn holds the record for the loudest burp, which was 118.1 decibels, which is as loud as a chainsaw**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
