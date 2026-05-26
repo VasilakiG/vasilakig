@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Paul Hunn holds the record for the loudest burp, which was 118.1 decibels, which is as loud as a chainsaw**
+- ⚡ Daily fun fact: **The typical lead pencil can draw a line that is thirty five miles long**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
