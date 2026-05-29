@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The largest employer in the world is the Indian railway system in India, employing over 1.6 million people**
+- ⚡ Daily fun fact: **It is estimated that by the end of 2000, there has been 142,600 tonnes of gold mined in the world**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
