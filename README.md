@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Colour is not an indicator for the taste or ripeness in cranberries**
+- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
