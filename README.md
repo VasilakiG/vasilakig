@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
+- ⚡ Daily fun fact: **The word "toy" comes from an old English word that means "tool."**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
