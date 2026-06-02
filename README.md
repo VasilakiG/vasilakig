@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The word "toy" comes from an old English word that means "tool."**
+- ⚡ Daily fun fact: **In 1810, Peter Durand invented the tin can for preserving food**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
