@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **The Koala bear is not really a bear, but is really related to the kangaroo and the wombat.**
+- ⚡ Daily fun fact: **Of married couples, 70% of men and 60% of women have cheated on their spouse**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
