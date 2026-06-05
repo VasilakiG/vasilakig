@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Of married couples, 70% of men and 60% of women have cheated on their spouse**
+- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
