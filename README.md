@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Sugar Bear (the mascot for Golden Crisps cereal) was born in 1963**
+- ⚡ Daily fun fact: **The deepest mine in the world is the East Rand mine, which goes to a depth of about 3,585 metres**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
