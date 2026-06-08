@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **2.5 cans of Spam are consumed every second in the United States**
+- ⚡ Daily fun fact: **The hydra, which is related to the jellyfish, can grow its body back in a couple of days if it is cut in half**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
