@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Throughout the South, peanuts were known as "Monkey Nuts," and "Goober peas," before the civil war**
+- ⚡ Daily fun fact: **China has more English speakers than the United States**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
