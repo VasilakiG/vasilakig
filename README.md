@@ -9,10 +9,10 @@
 - ⚒️ Work**ED** on:<br>
       - [python.mk](https://python.mk/) (my own python learning platform for elementary school students)<br>
       - [summer23.best.org.mk](https://summer23.best.org.mk/) (website for the 2023 Best Summer Course in Skopje)<br>
-      - [eestec.mk](https://eestec.mk/) (Github repositories - https://github.com/MarioStojcevski/eestec.mk & https://github.com/eestec-sk/eestec.mk)<br>
-      - Open source projects on GitHub<br>
+      - Made contributions in these open source projects on GitHub<br>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [mDNS](https://github.com/mjansson/mdns) (Public domain mDNS/DNS-SD library in C)<br>
-      - Open source projects @ [base42](https://github.com/42dotmk)<br>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [localsend](https://github.com/localsend/localsend) (An open-source cross-platform alternative to AirDrop)<br>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [hed](https://github.com/42dotmk/hed) (A small sized(<1MB), hackable terminal editor written in C)<br>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Colloseum](https://github.com/42dotmk/colosseum) (Competitive programming events organizing platform)<br>
       
 - ⚒️ Work**ING** on:<br>
