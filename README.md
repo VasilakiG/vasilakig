@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Cinderella is known as Rashin Coatie in Scotland, Zezolla in Italy, and Yeh-hsien in China**
+- ⚡ Daily fun fact: **Orcas (killer whales), when traveling in groups, breathe in unison**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
