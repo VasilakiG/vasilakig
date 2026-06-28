@@ -1,7 +1,7 @@
 <h1 align="center">Hello World, I'm Vasilaki Totsili</h1>
 <h3 align="center">Embedded Software Engineer based in Skopje</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilakig&label=Profile%20views&color=0e75b6&style=flat" alt="vasilakig" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vasilaking&label=Profile%20views&color=0e75b6&style=flat" alt="vasilaking" /> </p>
 
 
 - 🌱 Currently learning: **Cybersecurity, server administration, making a full-stack app with main focus on the database design**
@@ -16,10 +16,10 @@
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Colloseum](https://github.com/42dotmk/colosseum) (Competitive programming events organizing platform)<br>
       
 - ⚒️ Work**ING** on:<br>
-      - [FEiN](https://github.com/VasilakiG/FEiN/) (Mobile-first web-application for personal finance tracking)<br>
+      - [FEiN](https://github.com/vasilaking/FEiN/) (Mobile-first web-application for personal finance tracking)<br>
       - [sparq](https://github.com/42dotmk/sparq) (base42's Embedded Framework)<br>
-      - [StormWing](https://github.com/42dotmk/StormWing) (DIY drone from scratch, firmware, software and hardware) <br>
-      - [build-my-own-kafka](https://github.com/VasilakiG/build-my-own-kafka) (Building Kafka from scratch in C++)<br>
+      - [storm-wing](https://github.com/42dotmk/storm-wing) (DIY drone from scratch, firmware, software and hardware) <br>
+      - [build-my-own-kafka](https://github.com/vasilaking/build-my-own-kafka) (Building Kafka from scratch in C++)<br>
       - Finishing GlobalGameJam games ([Skibidi Toilet](https://globalgamejam.org/games/2024/skibiditoilet-9), [Bubbles' Adventures](https://globalgamejam.org/games/2025/bubbles-adventures-2) & [Masquerade: Exorcist](https://globalgamejam.org/games/2026/masquerade-exorcist-7))<br>
 
 - 👨‍💻 You can read more about me at [vasilaki.mk](https://vasilaki.mk/)
@@ -43,8 +43,8 @@
 <p align="left"> <a href="https://git-scm.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/git-scm/git-scm-icon.svg" alt="git" width="40" height="40"/> </a> <a href="https://www.gnu.org/software/bash/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/gnu_bash/gnu_bash-icon.svg" alt="bash" width="40" height="40"/> </a> <a href="https://www.cprogramming.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/c/c-original.svg" alt="c" width="40" height="40"/> </a> <a href="https://www.w3schools.com/cpp/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/cplusplus/cplusplus-original.svg" alt="cplusplus" width="40" height="40"/> </a> <a href="https://www.arduino.cc/" target="_blank" rel="noreferrer"> <img src="https://cdn.worldvectorlogo.com/logos/arduino-1.svg" alt="arduino" width="40" height="40"/> </a> <a href="https://nextjs.org/" target="_blank" rel="noreferrer"> <img src="https://cdn.worldvectorlogo.com/logos/nextjs-2.svg" alt="nextjs" width="40" height="40"/> </a> <a href="https://www.typescriptlang.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/typescript/typescript-original.svg" alt="typescript" width="40" height="40"/> </a> <a href="https://reactjs.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/react/react-original-wordmark.svg" alt="react" width="40" height="40"/> </a> <a href="https://unrealengine.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/kenangundogan/fontisto/036b7eca71aab1bef8e6a0518f7329f13ed62f6b/icons/svg/brand/unreal-engine.svg" alt="unreal" width="40" height="40"/> </a> <a href="https://www.python.org" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg" alt="python" width="40" height="40"/> </a> <a href="https://www.java.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/java/java-original.svg" alt="java" width="40" height="40"/> </a> <a href="https://www.w3schools.com/cs/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/csharp/csharp-original.svg" alt="csharp" width="40" height="40"/> </a> <a href="https://www.linux.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/linux/linux-original.svg" alt="linux" width="40" height="40"/> </a> <a href="https://postman.com" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/getpostman/getpostman-icon.svg" alt="postman" width="40" height="40"/> </a> <a href="https://www.blender.org/" target="_blank" rel="noreferrer"> <img src="https://download.blender.org/branding/community/blender_community_badge_white.svg" alt="blender" width="40" height="40"/> </a> <a href="https://www.adobe.com/in/products/illustrator.html" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/adobe_illustrator/adobe_illustrator-icon.svg" alt="illustrator" width="40" height="40"/> </a> <a href="https://www.figma.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/figma/figma-icon.svg" alt="figma" width="40" height="40"/> </a> <a href="https://www.w3.org/html/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/html5/html5-original-wordmark.svg" alt="html5" width="40" height="40"/> </a> <a href="https://www.w3schools.com/css/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/css3/css3-original-wordmark.svg" alt="css3" width="40" height="40"/> </a> </p>
 
 <!-- Stats -->
-![vasilakig's Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=vasilakig&theme=great-gatsby&show_icons=true&hide_border=false&layout=compact)
-![vasilakig's Streak](https://github-readme-streak-stats.herokuapp.com/?user=vasilakig&theme=great-gatsby&hide_border=false)
-![vasilakig's Stats](https://github-readme-stats.vercel.app/api?username=vasilakig&theme=great-gatsby&show_icons=true&hide_border=false&count_private=true)
+![vasilaking's Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=vasilaking&theme=great-gatsby&show_icons=true&hide_border=false&layout=compact)
+![vasilaking's Streak](https://github-readme-streak-stats.herokuapp.com/?user=vasilaking&theme=great-gatsby&hide_border=false)
+![vasilaking's Stats](https://github-readme-stats.vercel.app/api?username=vasilaking&theme=great-gatsby&show_icons=true&hide_border=false&count_private=true)
 
 
