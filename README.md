@@ -26,7 +26,7 @@
 
 - 📫 Mail me at **vasilaki@totsili.com**
 
-- ⚡ Daily fun fact: **Before 1928, yo-yos used to be called bandalores in the United States**
+- ⚡ Daily fun fact: **A meteor has only destroyed one satellite, which was the European Space Agency's Olympus in 1993.**
 
 <!-- Contact -->
 <h3 align="left">Connect with me:</h3>
